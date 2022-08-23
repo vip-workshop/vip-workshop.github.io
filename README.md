@@ -1,3 +1,3 @@
-# Violence, Instability and Politics Workshop
+# Violence, Instability and Politics (VIP) workshop
 
 website for vip-workshop under construction
