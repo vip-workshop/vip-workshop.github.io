@@ -1,3 +1,3 @@
 # Violence, Instability, and Politics (VIP) workshop
 
-website for vip-workshop under construction
+The website for the VIP-workshop series is currently under construction.
