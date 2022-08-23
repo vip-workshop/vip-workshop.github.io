@@ -1,2 +1,3 @@
-# vip-workshop.github.io
-website for wip-workshop
+# Violence, Instability and Politics Workshop
+
+website for wip-workshop under construction
