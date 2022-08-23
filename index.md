@@ -15,10 +15,11 @@ The website for the VIP-workshop series is currently under construction.
 ## Future workshops
 
 [here comes a list with all future workshops.]
+
 The VIPs will be held on the first Thursday of the month, ...:... pm Eastern Time.
 
 
-## Organizers (alphabetical by first name):
+## Organizers
 
 - Ana Paula Pellegrino (PhD Student, Georgetown University)
 - Amélie Godefroidt (Post-doctoral Scholar, Norwegian University of Science and Technology) 
