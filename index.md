@@ -1,6 +1,6 @@
 # What is VIP?
 
-The Violence, Instability, and Peace (VIP) Workshop is a forum for scholars studying conflict, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., political sociology, economics), and from across subfields. 
+The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., political sociology, economics), and from across subfields. 
 
 We are open to work from scholars at all career stages, although we particularly aim to provide opportunities for junior scholars and early career researchers, including pre-tenure and non-tenure track faculty, post-docs, and graduate students. We are also committed to promoting opportunities for scholars from historically excluded communities.
 
@@ -14,6 +14,11 @@ Sessions will be dedicated to providing feedback on two featured papers; accordi
 
 
 # Fall 2022 - Sign up to present, discuss and attend!
+
+For our innaugural workshop series, we will be meeting on:
+- October 13, 8am PST/11am EST/4pm GMT
+- November 10, time TBD
+- December 8, time TBD
 
 If you are interested in participating as a presenter at the VIP workshop this semester, please fill out [this application](https://forms.gle/WdimzB5EiiKvV4Br8) by September 21.
 
