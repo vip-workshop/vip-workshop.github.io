@@ -27,7 +27,7 @@ We are interested in scholars at varying stages of their careers (from advanced 
 
 If you would like to be informed of the schedule for VIP workshop this semester, please [sign up here](https://forms.gle/XyMUkb5W9faWTHh97).
 
-[coming soon!]
+[program coming soon!]
 
 ### Organizers
 
