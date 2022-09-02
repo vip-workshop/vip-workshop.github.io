@@ -26,11 +26,11 @@ We will consider submissions of full papers (e.g., to be submitted for publicati
 
 If you are interested in participating as a discussant at the VIP workshop this semester or would like to be kept in mind for the future, please fill out [this form](https://forms.gle/BVLyRLWQuZ6XSkER7). 
 
-We are interested in scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) who are willing to read research-in-progress  and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
+Scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) can serve as discussants, as long as they are willing to read research-in-progress and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
 
 ## Program and attendance
 
-If you would like to be informed of the schedule for VIP workshop this semester, please [sign up here](https://forms.gle/XyMUkb5W9faWTHh97).
+If you would like to be informed of the schedule for VIP workshop this semester, please [sign up here](https://forms.gle/XyMUkb5W9faWTHh97). We will also circulate sign-up forms for specific sessions through this list serve.
 
 [program coming soon!]
 
