@@ -5,7 +5,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 ## Fall 2022 
 
 For our innaugural workshop series, we will be meeting on:
-- October 13, 8am PST/11am EST/4pm GMT
+- October 13, 8am PST/11am EST/4pm GMT -- “Violence Against Women and Political Participation in Mexico” by Angie Torres-Beltran (Cornell) and “Taking to Kill: The Lethality of Hostage-Taking in Civil War” by Blair Welsh (Essex)
 - November 10, time TBD
 - December 8, time TBD
 
