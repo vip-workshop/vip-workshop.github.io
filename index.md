@@ -5,14 +5,23 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 ## Fall 2022 
 
 For our innaugural workshop series, we will be meeting on:
-- October 13, 8am PST/11am EST/4pm GMT -- “Violence Against Women and Political Participation in Mexico” by Angie Torres-Beltran (Cornell) and “Taking to Kill: The Lethality of Hostage-Taking in Civil War” by Blair Welsh (Essex)
-- November 10, time TBD
-- December 8, time TBD
+- October 13, 8am PST/11am EST/4pm GMT 
+
+    “Violence Against Women and Political Participation in Mexico” by Angie Torres-Beltran (Cornell)
+    Discussant: Jamie Shenk (Harvard University)
+    
+    “Taking to Kill: The Lethality of Hostage-Taking in Civil War” by Blair Welsh (Essex)
+    Discussant: Jori Breslawski
+    
+    Sign up for the zoom link here: bit.ly/3RqCrhF
+    
+- November 10, 12pm PST/ 3pm EST/8pm GMT
+- December 8, 8am PST/11am EST/4pm GMT
 
 
 # Sign up!
 
-Do you want to **present** your work? Sign up [here](https://forms.gle/pXhSjxX5pokkuvnu8) by September 21!
+Do you want to **present** your work? Come back in late fall, when we'll open submissions for Spring 2023!
 
 We will consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
 
