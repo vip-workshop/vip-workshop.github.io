@@ -13,7 +13,7 @@ For our innaugural workshop series, we will be meeting on:
     [“Taking to Kill: The Lethality of Hostage-Taking in Civil War”](https://drive.google.com/file/d/1L3wQZAGgqMSdapc5dl46tmAJSi3ZCvHC/view?usp=sharing) by Blair Welsh (Essex)
     Discussant: Jori Breslawski
     
-    Sign up for the zoom link here: bit.ly/3RqCrhF
+    Sign up for the zoom link [here](bit.ly/3RqCrhF).
     
 - November 10, 12pm PST/ 3pm EST/8pm GMT
 - December 8, 8am PST/11am EST/4pm GMT
