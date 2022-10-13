@@ -5,7 +5,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 ## Upcoming workshop
 
 For our innaugural workshop series, we will be meeting on:
-- October 13, 8am PST/11am EST/4pm GMT 
+- October 13, 8am PST/11am EST/3pm GMT 
 
     [“Violence Against Women and Political Participation in Mexico”](https://drive.google.com/file/d/1Zsf0p7SwsbOQk1kaGJ77DHD1addTRnQx/view?usp=sharing) by Angie Torres-Beltran (Cornell)
     Discussant: Jamie Shenk (Harvard University)
