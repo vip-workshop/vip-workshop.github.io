@@ -18,22 +18,22 @@ Sign up for the zoom link [here](https://georgetown.zoom.us/meeting/register/tJ0
 
 # Sign up!
 
-Do you want to **present** your work? Come back in late fall, when we'll open submissions for Spring 2023!
+- Do you want to **present** your work? Come back in late fall, when we'll open submissions for Spring 2023!
 
 We will consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
 
 We are open to work from scholars at all career stages, although we particularly aim to provide opportunities for junior scholars and early career researchers, including pre-tenure and non-tenure track faculty, post-docs, and graduate students. We are also committed to promoting opportunities for scholars from historically excluded communities.
 
 
-Do you want to **discuss** your peers' work? Volunteer as a discussant [here](https://forms.gle/BVLyRLWQuZ6XSkER7). 
+- Do you want to **discuss** your peers' work? Volunteer as a discussant [here](https://forms.gle/BVLyRLWQuZ6XSkER7). 
 
 Scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) can serve as discussants, as long as they are willing to read research-in-progress and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
 
 
-Do you just want to **stay informed** and join us in listening to the great work of your colleagues? Sign up for our list serve [here](https://forms.gle/XyMUkb5W9faWTHh97).
+- Do you just want to **stay informed** and join us in listening to the great work of your colleagues? Sign up for our list serve [here](https://forms.gle/XyMUkb5W9faWTHh97).
 
 
-Do you want to **join the workshops**? Sign up for the zoom link [here](https://georgetown.zoom.us/meeting/register/tJ0pc-qgrD8sGdd1KBBtvH583bRd_SVHoQge).
+- Do you want to **join the workshops**? Sign up for the zoom link [here](https://georgetown.zoom.us/meeting/register/tJ0pc-qgrD8sGdd1KBBtvH583bRd_SVHoQge).
 
 
 # Format
@@ -45,13 +45,7 @@ Our group holds a one-hour-long workshop-style forum on the second Thursday of e
 Sessions will be dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
 
 
-# Program and attendance
-
-- November 10, 12pm PST/ 3pm EST/8pm GMT
-- December 8, 8am PST/11am EST/4pm GMT
-
-
-### Organizers
+# Organizers
 
 - Ana Paula Pellegrino (PhD Student, Georgetown University)
 - Amélie Godefroidt (Post-doctoral Scholar, Norwegian University of Science and Technology) 
