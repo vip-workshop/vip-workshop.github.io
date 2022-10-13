@@ -2,7 +2,7 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
-## Fall 2022 
+## Upcoming workshop
 
 For our innaugural workshop series, we will be meeting on:
 - October 13, 8am PST/11am EST/4pm GMT 
@@ -13,10 +13,7 @@ For our innaugural workshop series, we will be meeting on:
     [“Taking to Kill: The Lethality of Hostage-Taking in Civil War”](https://drive.google.com/file/d/1L3wQZAGgqMSdapc5dl46tmAJSi3ZCvHC/view?usp=sharing) by Blair Welsh (Essex)
     Discussant: Jori Breslawski
     
-    Sign up for the zoom link [here](https://georgetown.zoom.us/meeting/register/tJ0pc-qgrD8sGdd1KBBtvH583bRd_SVHoQge).
-    
-- November 10, 12pm PST/ 3pm EST/8pm GMT
-- December 8, 8am PST/11am EST/4pm GMT
+Sign up for the zoom link [here](https://georgetown.zoom.us/meeting/register/tJ0pc-qgrD8sGdd1KBBtvH583bRd_SVHoQge).
 
 
 # Sign up!
@@ -36,6 +33,9 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
 Do you just want to **stay informed** and join us in listening to the great work of your colleagues? Sign up for our list serve [here](https://forms.gle/XyMUkb5W9faWTHh97).
 
 
+Do you want to **join the workshops**? Sign up for the zoom link [here](https://georgetown.zoom.us/meeting/register/tJ0pc-qgrD8sGdd1KBBtvH583bRd_SVHoQge).
+
+
 # Format
 
 Our group holds a one-hour-long workshop-style forum on the second Thursday of each month. To accommodate scholars from across the globe, we alternate between two pre-determined times: 
@@ -47,7 +47,8 @@ Sessions will be dedicated to providing feedback on two featured papers; accordi
 
 # Program and attendance
 
-[Fall 2022 program coming soon!]
+- November 10, 12pm PST/ 3pm EST/8pm GMT
+- December 8, 8am PST/11am EST/4pm GMT
 
 
 ### Organizers
