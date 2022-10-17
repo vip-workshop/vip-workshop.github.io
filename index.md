@@ -8,7 +8,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
     “The Economic Roots of Violence: The Unintended Consequences of Colombia's Close Peace Referendum” by Andrés Felipe Rivera-Triviño (Universidad Javeriana-Cali) & Paula Zamora-Raiño (Texas A&M University)
     
-     “The Economic Roots of Violence: The Unintended Consequences of Colombia's Close Peace Referendum” by Sara Daub (University of Maryland & The Hertie School)
+     “Support from Afar? The Logic of Diaspora Sponsorship to Rebel Organizations” by Sara Daub (University of Maryland & The Hertie School)
     
 
 
