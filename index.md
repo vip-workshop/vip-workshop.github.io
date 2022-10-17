@@ -20,7 +20,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
     Discussant: Jamie Shenk (Harvard University)
     
     [“Taking to Kill: The Lethality of Hostage-Taking in Civil War”](https://drive.google.com/file/d/1L3wQZAGgqMSdapc5dl46tmAJSi3ZCvHC/view?usp=sharing) by Blair Welsh (Essex)
-    Discussant: Jori Breslawski
+    Discussant: Jori Breslawski (Tel Aviv University)
 
 # Sign up!
 
