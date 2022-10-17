@@ -2,9 +2,18 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
-## Upcoming workshop
+## Upcoming Workshops
 
-For our inaugural workshop, we will be meeting on:
+- November 10, 12pm PST/3pm EST/8pm GMT
+
+    “The Economic Roots of Violence: The Unintended Consequences of Colombia's Close Peace Referendum” by Andrés Felipe Rivera-Triviño (Universidad Javeriana-Cali) & Paula Zamora-Raiño (Texas A&M University)
+    
+     “The Economic Roots of Violence: The Unintended Consequences of Colombia's Close Peace Referendum” by Sara Daub (University of Maryland & The Hertie School)
+    
+
+
+## Past Workshops
+
 - October 13, 8am PST/11am EST/3pm GMT 
 
     [“Violence Against Women and Political Participation in Mexico”](https://drive.google.com/file/d/1Zsf0p7SwsbOQk1kaGJ77DHD1addTRnQx/view?usp=sharing) by Angie Torres-Beltran (Cornell)
@@ -12,9 +21,6 @@ For our inaugural workshop, we will be meeting on:
     
     [“Taking to Kill: The Lethality of Hostage-Taking in Civil War”](https://drive.google.com/file/d/1L3wQZAGgqMSdapc5dl46tmAJSi3ZCvHC/view?usp=sharing) by Blair Welsh (Essex)
     Discussant: Jori Breslawski
-    
-Sign up for the zoom link [here](https://georgetown.zoom.us/meeting/register/tJ0pc-qgrD8sGdd1KBBtvH583bRd_SVHoQge).
-
 
 # Sign up!
 
