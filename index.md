@@ -8,7 +8,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
     [“The Economic Roots of Violence: The Unintended Consequences of Colombia's Close Peace Referendum”](https://drive.google.com/file/d/10qIi1JeI1pArK6P9V-lR6HiU15gwrruV/view?usp=sharing) by Andrés Felipe Rivera-Triviño (Universidad Javeriana-Cali) & Paula Zamora-Raiño (Texas A&M University)
     
-     “Support from Afar? The Logic of Diaspora Sponsorship to Rebel Organizations” by Sara Daub (University of Maryland & The Hertie School)
+     [“Support from Afar? The Logic of Diaspora Sponsorship to Rebel Organizations”](https://drive.google.com/file/d/1yi_zrg4aXQPkTPxX30uZZFuT-wRpjC3-/view?usp=sharing) by Sara Daub (University of Maryland & The Hertie School)
     
 - December 8, 4pm GMT/11am EST/8am PST
 
@@ -20,10 +20,10 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 - October 13, 8am PST/11am EST/3pm GMT 
 
-    [“Violence Against Women and Political Participation in Mexico”](https://drive.google.com/file/d/1Zsf0p7SwsbOQk1kaGJ77DHD1addTRnQx/view?usp=sharing) by Angie Torres-Beltran (Cornell)
+    “Violence Against Women and Political Participation in Mexico” by Angie Torres-Beltran (Cornell)
     Discussant: Jamie Shenk (Harvard University)
     
-    [“Taking to Kill: The Lethality of Hostage-Taking in Civil War”](https://drive.google.com/file/d/1L3wQZAGgqMSdapc5dl46tmAJSi3ZCvHC/view?usp=sharing) by Blair Welsh (Essex)
+    “Taking to Kill: The Lethality of Hostage-Taking in Civil War”by Blair Welsh (Essex)
     Discussant: Jori Breslawski (Tel Aviv University)
 
 # Sign up!
