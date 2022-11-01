@@ -4,7 +4,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Upcoming Workshops
 
-- November 10, 12pm PST/3pm EST/8pm GMT
+- November 10, 12pm PST/3pm EST/8pm GMT - [register here to attend](https://unc.zoom.us/meeting/register/tJIqceyrqzkjGNeF9YtKcBgqvvjKZPxojNik)
 
     [“The Economic Roots of Violence: The Unintended Consequences of Colombia's Close Peace Referendum”](https://drive.google.com/file/d/10qIi1JeI1pArK6P9V-lR6HiU15gwrruV/view?usp=sharing) by Andrés Felipe Rivera-Triviño (Universidad Javeriana-Cali) & Paula Zamora-Raiño (Texas A&M University)
     
