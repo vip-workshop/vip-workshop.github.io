@@ -43,9 +43,6 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
 - Do you just want to **stay informed** and join us in listening to the great work of your colleagues? Sign up for our list serve [here](https://forms.gle/XyMUkb5W9faWTHh97).
 
 
-- Do you want to **join the workshops**? Sign up for the zoom link [here](https://georgetown.zoom.us/meeting/register/tJ0pc-qgrD8sGdd1KBBtvH583bRd_SVHoQge).
-
-
 # Format
 
 Our group holds a one-hour-long workshop-style forum on the second Thursday of each month. To accommodate scholars from across the globe, we alternate between two pre-determined times: 
