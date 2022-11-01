@@ -10,7 +10,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
     
      “Support from Afar? The Logic of Diaspora Sponsorship to Rebel Organizations” by Sara Daub (University of Maryland & The Hertie School)
     
+- December 8, 4pm GMT/11am EST/8am PST
 
+    "How Corporatist Institutions Shape Criminal Violence: Evidence from Mexico's Nucleos Agrarios" by Elena Barham (Columbia University)
+    
+    "How Does the Geography of Surveillance Affect Collective Action in the Occupied Palestinian Territories?" by Sandra Penic (University of Geneva)
 
 ## Past Workshops
 
