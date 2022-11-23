@@ -4,13 +4,13 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Upcoming Workshops
     
-- December 8, 4pm GMT/11am EST/8am PST
-
-    "How Corporatist Institutions Shape Criminal Violence: Evidence from Mexico's Nucleos Agrarios" by Elena Barham (Columbia University)
-    Discussant: Alma Bezares Calderón (Whittier College)
+- December 8, 11am EST/8am PST/4pm GMT
     
     "How Does the Geography of Surveillance Affect Collective Action in the Occupied Palestinian Territories?" by Sandra Penic (University of Geneva)
-    Discussant: Emily Ritter (Vanderbilt University)
+     Discussant: Emily Ritter (Vanderbilt University)
+     
+     "How Corporatist Institutions Shape Criminal Violence: Evidence from Mexico's Nucleos Agrarios" by Elena Barham (Columbia University)
+     Discussant: Alma Bezares Calderón (Whittier College)
 
 ## Past Workshops
 
@@ -59,8 +59,8 @@ Sessions will be dedicated to providing feedback on two featured papers; accordi
 
 # Organizers
 
-- Ana Paula Pellegrino (PhD Student, Georgetown University)
-- Amélie Godefroidt (Post-doctoral Scholar, Norwegian University of Science and Technology) 
+- Ana Paula Pellegrino (PhD Candidate, Georgetown University)
+- Amélie Godefroidt (Post-doctoral Scholar, KU Leuven) 
 - Isabel Laterzo (PhD Candidate, UNC-Chapel Hill)
 - MP Broache (Assistant Professor, UNC-Greensboro)
 - Neeraj Prasad (Assistant Professor, University of Amsterdam)
