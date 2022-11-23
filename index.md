@@ -3,20 +3,25 @@
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
 ## Upcoming Workshops
-
-- November 10, 12pm PST/3pm EST/8pm GMT - [register here to attend](https://unc.zoom.us/meeting/register/tJIqceyrqzkjGNeF9YtKcBgqvvjKZPxojNik)
-
-    [“The Economic Roots of Violence: The Unintended Consequences of Colombia's Close Peace Referendum”](https://drive.google.com/file/d/10qIi1JeI1pArK6P9V-lR6HiU15gwrruV/view?usp=sharing) by Andrés Felipe Rivera-Triviño (Universidad Javeriana-Cali) & Paula Zamora-Raiño (Texas A&M University)
-    
-     [“Support from Afar? The Logic of Diaspora Sponsorship to Rebel Organizations”](https://drive.google.com/file/d/1yi_zrg4aXQPkTPxX30uZZFuT-wRpjC3-/view?usp=sharing) by Sara Daub (University of Maryland & The Hertie School)
     
 - December 8, 4pm GMT/11am EST/8am PST
 
     "How Corporatist Institutions Shape Criminal Violence: Evidence from Mexico's Nucleos Agrarios" by Elena Barham (Columbia University)
+    Discussant: Alma Bezares Calderón (Whittier College)
     
     "How Does the Geography of Surveillance Affect Collective Action in the Occupied Palestinian Territories?" by Sandra Penic (University of Geneva)
+    Discussant: Emily Ritter (Vanderbilt University)
 
 ## Past Workshops
+
+
+- November 10, 12pm PST/3pm EST/8pm GMT
+
+    “The Economic Roots of Violence: The Unintended Consequences of Colombia's Close Peace Referendum” by Andrés Felipe Rivera-Triviño (Universidad Javeriana-Cali) & Paula Zamora-Raiño (Texas A&M University)
+    Discussant: Michael Weintraub (Universidade de los Andes)
+    
+     “Support from Afar? The Logic of Diaspora Sponsorship to Rebel Organizations” by Sara Daub (University of Maryland & The Hertie School)
+     Discussant: Jessica Soedirgo (The University of Amsterdam)
 
 - October 13, 8am PST/11am EST/3pm GMT 
 
