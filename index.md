@@ -9,7 +9,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
     ["How Does the Geography of Surveillance Affect Collective Action in the Occupied Palestinian Territories?"](https://psyarxiv.com/eq29y/) by Sandra Penic (University of Geneva)
      Discussant: Emily Ritter (Vanderbilt University)
      
-     "How Corporatist Institutions Shape Criminal Violence: Evidence from Mexico's Nucleos Agrarios" by Elena Barham (Columbia University)
+     ["How Corporatist Institutions Shape Criminal Violence: Evidence from Mexico's Nucleos Agrarios"](https://drive.google.com/file/d/1gq8aqBEeZzxGD2z0bvHqTCpW8YwW-iYY/view?usp=sharing) by Elena Barham (Columbia University)
      Discussant: Alma Bezares Calderón (Whittier College)
 
 ## Past Workshops
