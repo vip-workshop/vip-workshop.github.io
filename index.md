@@ -4,7 +4,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Upcoming Workshops
     
-- December 8, 11am EST/8am PST/4pm GMT - sign up to attend via Zoom [here](http://bit.ly/3ViLe8b)
+- December 8, 11am EST/8am PST/4pm GMT - [sign up to attend via Zoom here](http://bit.ly/3ViLe8b)
     
     ["How Does the Geography of Surveillance Affect Collective Action in the Occupied Palestinian Territories?"](https://psyarxiv.com/eq29y/) by Sandra Penic (University of Geneva)
      Discussant: Emily Ritter (Vanderbilt University)
