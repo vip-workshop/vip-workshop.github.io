@@ -20,9 +20,7 @@ We are open to work from scholars at all career stages, although we particularly
 
 # Format
 
-Our group holds a one-hour-long workshop-style forum on the second Thursday of each month. To accommodate scholars from across the globe, we alternate between two pre-determined times: 
-- 8am PST/11am EST/4pm GMT; and 
-- 12pm PST/ 3pm EST/8pm GMT.
+Our group holds a one-hour-long workshop-style forum on the second Thursday of each month at 8am PST/11am EST/4pm GMT.
 
 Sessions will be dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
 
@@ -34,25 +32,31 @@ Sessions will be dedicated to providing feedback on two featured papers; accordi
 - December 8, 11am EST/8am PST/4pm GMT
     
     "How Does the Geography of Surveillance Affect Collective Action in the Occupied Palestinian Territories?" by [Sandra Penic (University of Geneva)](https://www.unige.ch/cisa/center/members/penic-sandra/)
+     
      Discussant: [Emily Ritter (Vanderbilt University)](https://www.emilyhenckenritter.com/)
      
      "How Corporatist Institutions Shape Criminal Violence: Evidence from Mexico's Nucleos Agrarios" by [Elena Barham (Columbia University)](https://www.elenabarham.com/)
+     
      Discussant: [Alma Bezares Calderón (Whittier College)](https://almaabezarescalderon.com/)
 
 - November 10, 12pm PST/3pm EST/8pm GMT
 
     “The Economic Roots of Violence: The Unintended Consequences of Colombia's Close Peace Referendum” by [Andrés Felipe Rivera-Triviño (Universidad Javeriana-Cali)](https://sites.google.com/view/andresriveratrivino/home) & [Paula Zamora-Raiño (Texas A&M University)](https://sites.google.com/view/paulazamora/about-me?authuser=0)
+    
     Discussant: [Michael Weintraub (Universidade de los Andes)](http://www.miweintraub.com/)
     
      “Support from Afar? The Logic of Diaspora Sponsorship to Rebel Organizations” by [Sara Daub (University of Maryland & The Hertie School)](https://www.hertie-school.org/en/research/faculty-and-researchers/profile/person/daub)
+     
      Discussant: [Jessica Soedirgo (The University of Amsterdam)](http://www.jessicasoedirgo.com/)
 
 - October 13, 8am PST/11am EST/3pm GMT 
 
     “Violence Against Women and Political Participation in Mexico” by [Angie Torres-Beltran (Cornell)](https://www.angietorresbeltran.com/)
+    
     Discussant: [Jamie Shenk (Harvard University)](https://www.jamieleeshenk.com/)
     
     “Taking to Kill: The Lethality of Hostage-Taking in Civil War” by [Blair Welsh (Essex)](https://www.blairwelsh.com/)
+    
     Discussant: [Jori Breslawski (Tel Aviv University)](https://sites.google.com/view/joribreslawski)
 
 
