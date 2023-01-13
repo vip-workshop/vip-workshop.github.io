@@ -6,17 +6,17 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 Our Spring 2023 workshops will be held on 2/9, 3/9, 4/6, and 5/4 for one hour beginning at 8am PST/11am EST/4pm GMT, so be sure to mark these in your calendars! The full schedule will be updated soon. Sign up [here](https://forms.gle/XyMUkb5W9faWTHh97) to receive emails with updates directly.
 
-- Do you want to **discuss** your peers' work? Volunteer as a discussant [here](https://forms.gle/BVLyRLWQuZ6XSkER7). 
+Do you want to **discuss** your peers' work? Volunteer as a discussant [here](https://forms.gle/BVLyRLWQuZ6XSkER7). 
 
 Scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) can serve as discussants, as long as they are willing to read research-in-progress and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
 
-- Do you want to **stay informed** and join us in workshopping the great work of our colleagues? Sign up for our list serve [here](https://forms.gle/XyMUkb5W9faWTHh97).
-
-- Interest in workshopping your paper? Check back in late Spring for our call for papers!
+*Interest in workshopping your paper? Check back in late Spring for our call for papers!*
 
 We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
 
 We are open to work from scholars at all career stages, although we particularly aim to provide opportunities for junior scholars and early career researchers, including pre-tenure and non-tenure track faculty, post-docs, and graduate students. We are also committed to promoting opportunities for scholars from historically excluded communities.
+
+Do you want to **stay informed** and join us in workshopping the great work of our colleagues? Sign up for our list serve [here](https://forms.gle/XyMUkb5W9faWTHh97).
 
 # Format
 
