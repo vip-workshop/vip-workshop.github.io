@@ -34,9 +34,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
      
 ## Format
 
-Our group holds a one-hour-long workshop-style forum on the second Thursday of each month at 8am PST/11am EST/4pm GMT.
-
-Sessions will be dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
+Our workshops are one-hour-long sessions dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
 
 
 # Workshop Information
@@ -44,7 +42,6 @@ Sessions will be dedicated to providing feedback on two featured papers; accordi
 Sign up [here](https://forms.gle/XyMUkb5W9faWTHh97) to receive emails with updates directly.
 
 *Interest in workshopping your paper for the Fall of 2023? Check back in late Spring for our call for papers!*
-
 
 We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
 
