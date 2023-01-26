@@ -7,42 +7,34 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 - February 9, 11am EST/8am PST/4pm GMT
     
     "The Political Economy of the Heavy Hand: How Poverty Reduces Politicians' Incentives to Reform Security Policies" by [Andrea Junqueira (Washington University in St. Louis)](https://andreajunqueira.com/)
-     
-     Discussant: 
+     Discussant: [Jessie Trudeau (Brown University)](https://www.jessietrudeau.com/) 
      
      "Coercion and Capture in Democratic Politics" by [Andres Uribe (The University of Chicago)](https://www.andresduribe.com/)
-     
-     Discussant: 
+      Discussant: [Alex Braithwaite (The University of Arizona)](https://sgpp.arizona.edu/people/alex-braithwaite)
      
  - March 9, 11am EST/8am PST/4pm GMT
     
     "The Public Response to Threats of Violence Against Elected Officials" by [Alexandra Filindra (The University of Illinois Chicago)](https://pols.uic.edu/profiles/filindra-alexandra/) & [Laurel Harbridge-Yong (Northwestern University)](https://sites.northwestern.edu/lharbridgeyong/)
      
-     Discussant: 
-     
      "Political Assassination, Elite Cues and Trust in Institutions: Quasi-Experiment from Tunisia" by [Mohamed-Dhia Hammami (Syracuse University)](https://sites.google.com/wesleyan.edu/meddhiah/about-me)
      
-     Discussant: 
-
  - April 6, 11am EST/8am PST/4pm GMT
     
     "Effects of Conflicts on Intimate Partner Violence: Evidence from Mexico" by [Anousheh Alamir (European Centre for Advanced Research in Economics and Statistics)](https://app.getsphere.com/anousheh-alamir)
      
-     Discussant: 
-     
      "Addressing Contentious Variance: Networks, Urban Space, and Collective Action in a Syrian Uprising, 1979–1982" by [Motasem Abuzaid (University of Oxford)]
-     
-     Discussant: 
      
  - May 4, 11am EST/8am PST/4pm GMT
     
     "The Inter-State Dilemma of Transnational Repression: Origin State Strategies and Host State Variation" by [Connor Kopchick (The University of Maryland - College Park)](https://connorkopchick.weebly.com/)
      
-     Discussant: 
+     Second Presentation: TBD   
      
-     TBD
-     
-     Discussant: 
+# Format
+
+Our group holds a one-hour-long workshop-style forum on the second Thursday of each month at 8am PST/11am EST/4pm GMT.
+
+Sessions will be dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
 
 
 # Workshop Information
@@ -60,12 +52,6 @@ Do you want to **discuss** your peers' work? Volunteer as a discussant [here](ht
 
 Scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) can serve as discussants, as long as they are willing to read research-in-progress and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
 
-
-# Format
-
-Our group holds a one-hour-long workshop-style forum on the second Thursday of each month at 8am PST/11am EST/4pm GMT.
-
-Sessions will be dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
 
 
 # Past Semesters
