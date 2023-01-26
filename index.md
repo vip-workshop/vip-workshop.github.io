@@ -4,7 +4,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 # Spring 2023 Line Up
 
-- February 9, 11am EST/8am PST/4pm GMT
+- February 9, 8am PST/11am EST/4pm GMT
     
     "The Political Economy of the Heavy Hand: How Poverty Reduces Politicians' Incentives to Reform Security Policies" by [Andrea Junqueira (Washington University in St. Louis)](https://andreajunqueira.com/)
      
@@ -14,19 +14,19 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
       
      Discussant: [Alex Braithwaite (The University of Arizona)](https://sgpp.arizona.edu/people/alex-braithwaite)
      
- - March 9, 11am EST/8am PST/4pm GMT
+ - March 9, 8am PST/11am EST/4pm GMT
     
     "The Public Response to Threats of Violence Against Elected Officials" by [Alexandra Filindra (The University of Illinois Chicago)](https://pols.uic.edu/profiles/filindra-alexandra/) & [Laurel Harbridge-Yong (Northwestern University)](https://sites.northwestern.edu/lharbridgeyong/)
      
      "Political Assassination, Elite Cues and Trust in Institutions: Quasi-Experiment from Tunisia" by [Mohamed-Dhia Hammami (Syracuse University)](https://sites.google.com/wesleyan.edu/meddhiah/about-me)
      
- - April 6, 11am EST/8am PST/4pm GMT
+ - April 6, 8am PST/11am EST/4pm GMT
     
     "Effects of Conflicts on Intimate Partner Violence: Evidence from Mexico" by [Anousheh Alamir (European Centre for Advanced Research in Economics and Statistics)](https://app.getsphere.com/anousheh-alamir)
      
      "Addressing Contentious Variance: Networks, Urban Space, and Collective Action in a Syrian Uprising, 1979–1982" by Motasem Abuzaid (University of Oxford)
      
- - May 4, 11am EST/8am PST/4pm GMT
+ - May 4, 8am PST/11am EST/4pm GMT
     
     "The Inter-State Dilemma of Transnational Repression: Origin State Strategies and Host State Variation" by [Connor Kopchick (The University of Maryland - College Park)](https://connorkopchick.weebly.com/)
      
@@ -57,7 +57,7 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
 
 ## Fall 2022 Line Up
 
-- December 8, 11am EST/8am PST/4pm GMT
+- December 8, 8am PST/11am EST/4pm GMT
     
     "How Does the Geography of Surveillance Affect Collective Action in the Occupied Palestinian Territories?" by [Sandra Penic (University of Geneva)](https://www.unige.ch/cisa/center/members/penic-sandra/)
      
