@@ -4,7 +4,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 # Spring 2023 Line Up
 
-- February 9, 8am PST/11am EST/4pm GMT
+- February 9, 8am PST/11am EST/4pm GMT [*Register to attend via Zoom here*](https://georgetown.zoom.us/meeting/register/tJwuf-2prTsvGNJcFWIOHPD2eS-3JvJJMS2v)
     
     "The Political Economy of the Heavy Hand: How Poverty Reduces Politicians' Incentives to Reform Security Policies" by [Andrea Junqueira (Washington University in St. Louis)](https://andreajunqueira.com/)
      
