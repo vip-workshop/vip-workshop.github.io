@@ -18,7 +18,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
     
     "The Public Response to Threats of Violence Against Elected Officials" by [Alexandra Filindra (The University of Illinois Chicago)](https://pols.uic.edu/profiles/filindra-alexandra/) & [Laurel Harbridge-Yong (Northwestern University)](https://sites.northwestern.edu/lharbridgeyong/)
      
-     "Political Assassination, Elite Cues and Trust in Institutions: Quasi-Experiment from Tunisia" by [Mohamed-Dhia Hammami (Syracuse University)](https://sites.google.com/wesleyan.edu/meddhiah/about-me)
+     "Political Assassination, Elite Cues and Trust in Institutions: Quasi-Experiment from Tunisia" by [Mohamed-Dhia Hammami (Syracuse University)](https://www.mdhiahammami.com/)
      
  - April 6, 8am PST/11am EST/4pm GMT
     
