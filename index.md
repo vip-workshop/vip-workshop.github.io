@@ -30,7 +30,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
     
     "The Inter-State Dilemma of Transnational Repression: Origin State Strategies and Host State Variation" by [Connor Kopchick (The University of Maryland - College Park)](https://connorkopchick.weebly.com/)
      
-     Second Presentation: TBD   
+     "Returning Home: Rebel Captivity, Cleansing Rituals and Reintegration in Uganda" by [Allen Kiconco (Wits University)](https://wits.academia.edu/AllenKiconco)   
      
 ## Format
 
