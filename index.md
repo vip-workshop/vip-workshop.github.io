@@ -6,11 +6,13 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 - February 9, 8am PST/11am EST/4pm GMT [*Register to attend via Zoom here*](https://georgetown.zoom.us/meeting/register/tJwuf-2prTsvGNJcFWIOHPD2eS-3JvJJMS2v)
     
-    ["The Political Economy of the Heavy Hand: How Poverty Reduces Politicians' Incentives to Reform Security Policies"](https://drive.google.com/file/d/10mPrFt8slyoojYZBxF-z36mAK6LDvMEM/view?usp=sharing) by [Andrea Junqueira (Washington University in St. Louis)](https://andreajunqueira.com/)
+    ["The Political Economy of the Heavy Hand: How Poverty Reduces Politicians' Incentives to Reform Security Policies"](https://drive.google.com/file/d/10mPrFt8slyoojYZBxF-z36mAK6LDvMEM/view?usp=sharing) 
+    by [Andrea Junqueira (Washington University in St. Louis)](https://andreajunqueira.com/)
      
      Discussant: [Jessie Trudeau (Brown University)](https://www.jessietrudeau.com/) 
      
-     "Coercion and Capture in Democratic Politics" by [Andres Uribe (The University of Chicago)](https://www.andresduribe.com/)
+     ["Coercion and Capture in Democratic Politics"](https://drive.google.com/file/d/10mPrFt8slyoojYZBxF-z36mAK6LDvMEM/view?usp=sharing) 
+     by [Andres Uribe (The University of Chicago)](https://www.andresduribe.com/)
       
      Discussant: [Alex Braithwaite (The University of Arizona)](https://sgpp.arizona.edu/people/alex-braithwaite)
      
