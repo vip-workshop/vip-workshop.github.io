@@ -11,7 +11,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
      
      Discussant: [Jessie Trudeau (Brown University)](https://www.jessietrudeau.com/) 
      
-     ["Coercion and Capture in Democratic Politics"](https://drive.google.com/file/d/10mPrFt8slyoojYZBxF-z36mAK6LDvMEM/view?usp=sharing) 
+     ["Coercion and Capture in Democratic Politics"](https://drive.google.com/file/d/15CbPBKaxN5-TLgPN5UiEB3LanLmntXfH/view?usp=sharing) 
      by [Andres Uribe (The University of Chicago)](https://www.andresduribe.com/)
       
      Discussant: [Alex Braithwaite (The University of Arizona)](https://sgpp.arizona.edu/people/alex-braithwaite)
