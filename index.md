@@ -4,7 +4,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 # Spring 2023 Line Up
 
- - March 9, 8am PST/11am EST/4pm GMT - Zoom registration coming soon
+ - March 9, 8am PST/11am EST/4pm GMT - [Register to attend via Zoom](https://unc.zoom.us/meeting/register/tJ0ldOygrz8qH9WQdnNZaSj-GZZe1hplpNOX)
     
     "The Public Response to Threats of Violence Against Elected Officials" by [Alexandra Filindra (The University of Illinois Chicago)](https://pols.uic.edu/profiles/filindra-alexandra/) & [Laurel Harbridge-Yong (Northwestern University)](https://sites.northwestern.edu/lharbridgeyong/)
     
