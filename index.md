@@ -4,23 +4,15 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 # Spring 2023 Line Up
 
-- February 9, 8am PST/11am EST/4pm GMT [*Register to attend via Zoom here*](https://georgetown.zoom.us/meeting/register/tJwuf-2prTsvGNJcFWIOHPD2eS-3JvJJMS2v)
-    
-    ["The Political Economy of the Heavy Hand: How Poverty Reduces Politicians' Incentives to Reform Security Policies"](https://drive.google.com/file/d/10mPrFt8slyoojYZBxF-z36mAK6LDvMEM/view?usp=sharing) 
-    by [Andrea Junqueira (Washington University in St. Louis)](https://andreajunqueira.com/)
-     
-     Discussant: [Jessie Trudeau (Brown University)](https://www.jessietrudeau.com/) 
-     
-     ["Coercion and Capture in Democratic Politics"](https://drive.google.com/file/d/15CbPBKaxN5-TLgPN5UiEB3LanLmntXfH/view?usp=sharing) 
-     by [Andres Uribe (The University of Chicago)](https://www.andresduribe.com/)
-      
-     Discussant: [Alex Braithwaite (The University of Arizona)](https://sgpp.arizona.edu/people/alex-braithwaite)
-     
- - March 9, 8am PST/11am EST/4pm GMT
+ - March 9, 8am PST/11am EST/4pm GMT - Zoom registration coming soon
     
     "The Public Response to Threats of Violence Against Elected Officials" by [Alexandra Filindra (The University of Illinois Chicago)](https://pols.uic.edu/profiles/filindra-alexandra/) & [Laurel Harbridge-Yong (Northwestern University)](https://sites.northwestern.edu/lharbridgeyong/)
+    
+    Discussant: [Elsa Voytas (I.E. University)](https://elsavoytas.com/)
      
      "Political Assassination, Elite Cues and Trust in Institutions: Quasi-Experiment from Tunisia" by [Mohamed-Dhia Hammami (Syracuse University)](https://www.mdhiahammami.com/)
+     
+     Discussant: [Mariana Carvalho (Brown University)](https://www.maricarvalho.com/)
      
  - April 6, 8am PST/11am EST/4pm GMT
     
@@ -57,7 +49,22 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
 
 # Past Semesters
 
-## Fall 2022 Line Up
+## Spring 2023
+
+- February 9, 8am PST/11am EST/4pm GMT 
+    
+    "The Political Economy of the Heavy Hand: How Poverty Reduces Politicians' Incentives to Reform Security Policies" 
+    by [Andrea Junqueira (Washington University in St. Louis)](https://andreajunqueira.com/)
+     
+     Discussant: [Jessie Trudeau (Brown University)](https://www.jessietrudeau.com/) 
+     
+     "Coercion and Capture in Democratic Politics"
+     by [Andres Uribe (The University of Chicago)](https://www.andresduribe.com/)
+      
+     Discussant: [Alex Braithwaite (The University of Arizona)](https://sgpp.arizona.edu/people/alex-braithwaite)
+     
+
+## Fall 2022 
 
 - December 8, 8am PST/11am EST/4pm GMT
     
