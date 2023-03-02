@@ -6,7 +6,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
  - March 9, 8am PST/11am EST/4pm GMT - [Register to attend via Zoom](https://unc.zoom.us/meeting/register/tJ0ldOygrz8qH9WQdnNZaSj-GZZe1hplpNOX)
     
-    "The Public Response to Threats of Violence Against Elected Officials" by [Alexandra Filindra (The University of Illinois Chicago)](https://pols.uic.edu/profiles/filindra-alexandra/) & [Laurel Harbridge-Yong (Northwestern University)](https://sites.northwestern.edu/lharbridgeyong/)
+    ["The Public Response to Threats of Violence Against Elected Officials"](https://drive.google.com/file/d/1TrvTWu6yC2q8v4DjC0z0ISJzYt3EcWUt/view?usp=sharing) by [Alexandra Filindra (The University of Illinois Chicago)](https://pols.uic.edu/profiles/filindra-alexandra/) & [Laurel Harbridge-Yong (Northwestern University)](https://sites.northwestern.edu/lharbridgeyong/)
     
     Discussant: [Elsa Voytas (I.E. University)](https://elsavoytas.com/)
      
