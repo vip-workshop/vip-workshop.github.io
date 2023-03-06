@@ -2,7 +2,7 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
-# Spring 2023 Line Up
+## Spring 2023 Line Up
 
  - March 9, 8am PST/11am EST/4pm GMT - [Register to attend via Zoom](https://unc.zoom.us/meeting/register/tJ0ldOygrz8qH9WQdnNZaSj-GZZe1hplpNOX)
     
@@ -47,7 +47,7 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
 
 
 
-# Past Semesters
+# Past Workshops
 
 ## Spring 2023
 
