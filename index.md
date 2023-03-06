@@ -10,7 +10,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
     
     Discussant: [Elsa Voytas (I.E. University)](https://elsavoytas.com/)
      
-     "Political Assassination, Elite Cues and Trust in Institutions: Quasi-Experiment from Tunisia" by [Mohamed-Dhia Hammami (Syracuse University)](https://www.mdhiahammami.com/)
+    ["Political Assassination, Elite Cues and Trust in Institutions: Quasi-Experiment from Tunisia"](https://drive.google.com/file/d/1pYMHNG8yYWUsd8PPf914aB-ZUspV6DPB/view?usp=sharing) by [Mohamed-Dhia Hammami (Syracuse University)](https://www.mdhiahammami.com/)
      
      Discussant: [Mariana Carvalho (Brown University)](https://www.maricarvalho.com/)
      
