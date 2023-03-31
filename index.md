@@ -9,7 +9,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
     
     ["Effects of Conflicts on Intimate Partner Violence: Evidence from Mexico"](https://drive.google.com/file/d/1qcary56BEBNeDDwhcTKsLtAYU9Axui7M/view?usp=sharing) by [Anousheh Alamir (European Centre for Advanced Research in Economics and Statistics)](https://app.getsphere.com/anousheh-alamir)
      
-     ["Addressing Contentious Variance: Networks, Urban Space, and Collective Action in a Syrian Uprising, 1979–1982"]((https://drive.google.com/file/d/1gmh5Gg2LQMLsrXcQr7EmU0HLDfYsuK4t/view?usp=sharing)) by Motasem Abuzaid (University of Oxford)
+     ["Addressing Contentious Variance: Networks, Urban Space, and Collective Action in a Syrian Uprising, 1979–1982"](https://drive.google.com/file/d/1gmh5Gg2LQMLsrXcQr7EmU0HLDfYsuK4t/view?usp=sharing) by Motasem Abuzaid (University of Oxford)
      
  - May 4, 8am PST/11am EST/4pm GMT
     
