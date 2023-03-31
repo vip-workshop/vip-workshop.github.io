@@ -4,21 +4,12 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Spring 2023 Line Up
 
- - March 9, 8am PST/11am EST/4pm GMT - [Register to attend via Zoom](https://unc.zoom.us/meeting/register/tJ0ldOygrz8qH9WQdnNZaSj-GZZe1hplpNOX)
+
+  - April 6, 8am PST/11am EST/4pm GMT - [Register to attend via Zoom](https://uncg.zoom.us/meeting/register/tJEpc-yhqjIoHtAli2b8RZh_nm4KW1O-yyst)
     
-    ["The Public Response to Threats of Violence Against Elected Officials"](https://drive.google.com/file/d/1TrvTWu6yC2q8v4DjC0z0ISJzYt3EcWUt/view?usp=sharing) by [Alexandra Filindra (The University of Illinois Chicago)](https://pols.uic.edu/profiles/filindra-alexandra/) & [Laurel Harbridge-Yong (Northwestern University)](https://sites.northwestern.edu/lharbridgeyong/)
-    
-    Discussant: [Elsa Voytas (I.E. University)](https://elsavoytas.com/)
+    ["Effects of Conflicts on Intimate Partner Violence: Evidence from Mexico"](https://drive.google.com/file/d/1qcary56BEBNeDDwhcTKsLtAYU9Axui7M/view?usp=sharing) by [Anousheh Alamir (European Centre for Advanced Research in Economics and Statistics)](https://app.getsphere.com/anousheh-alamir)
      
-    ["Political Assassination, Elite Cues and Trust in Institutions: Quasi-Experiment from Tunisia"](https://drive.google.com/file/d/1pYMHNG8yYWUsd8PPf914aB-ZUspV6DPB/view?usp=sharing) by [Mohamed-Dhia Hammami (Syracuse University)](https://www.mdhiahammami.com/)
-     
-     Discussant: [Mariana Carvalho (Brown University)](https://www.maricarvalho.com/)
-     
- - April 6, 8am PST/11am EST/4pm GMT
-    
-    "Effects of Conflicts on Intimate Partner Violence: Evidence from Mexico" by [Anousheh Alamir (European Centre for Advanced Research in Economics and Statistics)](https://app.getsphere.com/anousheh-alamir)
-     
-     "Addressing Contentious Variance: Networks, Urban Space, and Collective Action in a Syrian Uprising, 1979–1982" by Motasem Abuzaid (University of Oxford)
+     ["Addressing Contentious Variance: Networks, Urban Space, and Collective Action in a Syrian Uprising, 1979–1982"]((https://drive.google.com/file/d/1gmh5Gg2LQMLsrXcQr7EmU0HLDfYsuK4t/view?usp=sharing)) by Motasem Abuzaid (University of Oxford)
      
  - May 4, 8am PST/11am EST/4pm GMT
     
@@ -50,6 +41,15 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
 # Past Workshops
 
 ## Spring 2023
+ - March 9, 8am PST/11am EST/4pm GMT
+    
+    ["The Public Response to Threats of Violence Against Elected Officials"](https://drive.google.com/file/d/1TrvTWu6yC2q8v4DjC0z0ISJzYt3EcWUt/view?usp=sharing) by [Alexandra Filindra (The University of Illinois Chicago)](https://pols.uic.edu/profiles/filindra-alexandra/) & [Laurel Harbridge-Yong (Northwestern University)](https://sites.northwestern.edu/lharbridgeyong/)
+    
+    Discussant: [Elsa Voytas (I.E. University)](https://elsavoytas.com/)
+     
+    ["Political Assassination, Elite Cues and Trust in Institutions: Quasi-Experiment from Tunisia"](https://drive.google.com/file/d/1pYMHNG8yYWUsd8PPf914aB-ZUspV6DPB/view?usp=sharing) by [Mohamed-Dhia Hammami (Syracuse University)](https://www.mdhiahammami.com/)
+     
+     Discussant: [Mariana Carvalho (Brown University)](https://www.maricarvalho.com/)
 
 - February 9, 8am PST/11am EST/4pm GMT 
     
