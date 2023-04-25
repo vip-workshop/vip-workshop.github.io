@@ -3,19 +3,16 @@
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
 ## Spring 2023 Line Up
-
-
-  - April 6, 8am PST/11am EST/4pm GMT - [Register to attend via Zoom](https://uncg.zoom.us/meeting/register/tJEpc-yhqjIoHtAli2b8RZh_nm4KW1O-yyst)
-    
-    ["Effects of Conflicts on Intimate Partner Violence: Evidence from Mexico"](https://drive.google.com/file/d/1qcary56BEBNeDDwhcTKsLtAYU9Axui7M/view?usp=sharing) by [Anousheh Alamir (European Centre for Advanced Research in Economics and Statistics)](https://app.getsphere.com/anousheh-alamir)
      
-     ["Addressing Contentious Variance: Networks, Urban Space, and Collective Action in a Syrian Uprising, 1979–1982"](https://drive.google.com/file/d/1gmh5Gg2LQMLsrXcQr7EmU0HLDfYsuK4t/view?usp=sharing) by Motasem Abuzaid (University of Oxford)
-     
- - May 4, 8am PST/11am EST/4pm GMT
+ - May 4, 8am PST/11am EST/4pm GMT - [Register here to join via Zoom](https://unc.zoom.us/meeting/register/tJApf-6gpzgpEteNpbRVH2YfGXnLgYg9l0R3)
     
     "The Inter-State Dilemma of Transnational Repression: Origin State Strategies and Host State Variation" by [Connor Kopchick (The University of Maryland - College Park)](https://connorkopchick.weebly.com/)
+    
+    Discussant: [Myunghee Lee (Nordic Institute of Asian Studies)](https://politicalscience.ku.dk/staff/Academic_staff/?pure=en/persons/736780)
      
      "Returning Home: Rebel Captivity, Cleansing Rituals and Reintegration in Uganda" by [Allen Kiconco (Wits University)](https://wits.academia.edu/AllenKiconco)   
+     
+     Discussant: [Rachel Tapscott (Geneva Graduate Institute)](https://www.graduateinstitute.ch/discover-institute/rebecca-tapscott)
      
 ## Format
 
@@ -41,6 +38,16 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
 # Past Workshops
 
 ## Spring 2023
+  - April 6, 8am PST/11am EST/4pm GMT
+    
+    "Effects of Conflicts on Intimate Partner Violence: Evidence from Mexico" by [Anousheh Alamir (European Centre for Advanced Research in Economics and Statistics)](https://app.getsphere.com/anousheh-alamir)
+    
+    Discussant: Marco Alcocer (Predoctoral Fellow, ITAM and Innovations for Poverty Action; PhD candidate, University of California, San Diego; Academy Scholar, Harvard University - fall '23)
+     
+     "Addressing Contentious Variance: Networks, Urban Space, and Collective Action in a Syrian Uprising, 1979–1982" by Motasem Abuzaid (University of Oxford)
+    
+    Discussant: Daniel Solomon (PhD Candidate, Georgetown University)
+
  - March 9, 8am PST/11am EST/4pm GMT
     
     ["The Public Response to Threats of Violence Against Elected Officials"](https://drive.google.com/file/d/1TrvTWu6yC2q8v4DjC0z0ISJzYt3EcWUt/view?usp=sharing) by [Alexandra Filindra (The University of Illinois Chicago)](https://pols.uic.edu/profiles/filindra-alexandra/) & [Laurel Harbridge-Yong (Northwestern University)](https://sites.northwestern.edu/lharbridgeyong/)
