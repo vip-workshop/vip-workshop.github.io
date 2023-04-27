@@ -12,7 +12,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
      
      "Returning Home: Rebel Captivity, Cleansing Rituals and Reintegration in Uganda" by [Allen Kiconco (Wits University)](https://wits.academia.edu/AllenKiconco)   
      
-     Discussant: [Rachel Tapscott (Geneva Graduate Institute)](https://www.graduateinstitute.ch/discover-institute/rebecca-tapscott)
+     Discussant: [Rebecca Tapscott (Geneva Graduate Institute)](https://www.graduateinstitute.ch/discover-institute/rebecca-tapscott)
      
 ## Format
 
