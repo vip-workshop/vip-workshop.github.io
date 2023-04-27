@@ -50,11 +50,11 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
 
  - March 9, 8am PST/11am EST/4pm GMT
     
-    ["The Public Response to Threats of Violence Against Elected Officials"](https://drive.google.com/file/d/1TrvTWu6yC2q8v4DjC0z0ISJzYt3EcWUt/view?usp=sharing) by [Alexandra Filindra (The University of Illinois Chicago)](https://pols.uic.edu/profiles/filindra-alexandra/) & [Laurel Harbridge-Yong (Northwestern University)](https://sites.northwestern.edu/lharbridgeyong/)
+    "The Public Response to Threats of Violence Against Elected Officials" by [Alexandra Filindra (The University of Illinois Chicago)](https://pols.uic.edu/profiles/filindra-alexandra/) & [Laurel Harbridge-Yong (Northwestern University)](https://sites.northwestern.edu/lharbridgeyong/)
     
     Discussant: [Elsa Voytas (I.E. University)](https://elsavoytas.com/)
      
-    ["Political Assassination, Elite Cues and Trust in Institutions: Quasi-Experiment from Tunisia"](https://drive.google.com/file/d/1pYMHNG8yYWUsd8PPf914aB-ZUspV6DPB/view?usp=sharing) by [Mohamed-Dhia Hammami (Syracuse University)](https://www.mdhiahammami.com/)
+    "Political Assassination, Elite Cues and Trust in Institutions: Quasi-Experiment from Tunisia" by [Mohamed-Dhia Hammami (Syracuse University)](https://www.mdhiahammami.com/)
      
      Discussant: [Mariana Carvalho (Brown University)](https://www.maricarvalho.com/)
 
