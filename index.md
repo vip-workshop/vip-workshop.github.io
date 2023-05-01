@@ -6,11 +6,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
      
  - May 4, 8am PST/11am EST/4pm GMT - [Register here to join via Zoom](https://unc.zoom.us/meeting/register/tJApf-6gpzgpEteNpbRVH2YfGXnLgYg9l0R3)
     
-    "The Inter-State Dilemma of Transnational Repression: Origin State Strategies and Host State Variation" by [Connor Kopchick (The University of Maryland - College Park)](https://connorkopchick.weebly.com/)
+    ["The Inter-State Dilemma of Transnational Repression: Origin State Strategies and Host State Variation"](https://drive.google.com/file/d/1Oc9v0A9j6-KeWm0nMDtpRMCFTU4k0602/view?usp=sharing) by [Connor Kopchick (The University of Maryland - College Park)](https://connorkopchick.weebly.com/)
     
     Discussant: [Myunghee Lee (Nordic Institute of Asian Studies)](https://politicalscience.ku.dk/staff/Academic_staff/?pure=en/persons/736780)
      
-     "Returning Home: Rebel Captivity, Cleansing Rituals and Reintegration in Uganda" by [Allen Kiconco (Wits University)](https://wits.academia.edu/AllenKiconco)   
+     ["Returning Home: Child Soldiers, Cleansing Rituals and Reintegration in Uganda"](https://drive.google.com/file/d/12mZSw09lfpRMdTVPbh6elR20kcFR17Xs/view?usp=sharing) by [Allen Kiconco (Wits University)](https://wits.academia.edu/AllenKiconco)   
      
      Discussant: [Rebecca Tapscott (Geneva Graduate Institute)](https://www.graduateinstitute.ch/discover-institute/rebecca-tapscott)
      
