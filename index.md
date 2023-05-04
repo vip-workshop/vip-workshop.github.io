@@ -2,17 +2,7 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
-## Spring 2023 Line Up
-     
- - May 4, 8am PST/11am EST/4pm GMT - [Register here to join via Zoom](https://unc.zoom.us/meeting/register/tJApf-6gpzgpEteNpbRVH2YfGXnLgYg9l0R3)
-    
-    ["The Inter-State Dilemma of Transnational Repression: Origin State Strategies and Host State Variation"](https://drive.google.com/file/d/1Oc9v0A9j6-KeWm0nMDtpRMCFTU4k0602/view?usp=sharing) by [Connor Kopchick (The University of Maryland - College Park)](https://connorkopchick.weebly.com/)
-    
-    Discussant: [Myunghee Lee (Nordic Institute of Asian Studies)](https://politicalscience.ku.dk/staff/Academic_staff/?pure=en/persons/736780)
-     
-     ["Returning Home: Child Soldiers, Cleansing Rituals and Reintegration in Uganda"](https://drive.google.com/file/d/12mZSw09lfpRMdTVPbh6elR20kcFR17Xs/view?usp=sharing) by [Allen Kiconco (Wits University)](https://wits.academia.edu/AllenKiconco)   
-     
-     Discussant: [Rebecca Tapscott (Geneva Graduate Institute)](https://www.graduateinstitute.ch/discover-institute/rebecca-tapscott)
+## Check back soon for our Fall 2023 call for proposals!
      
 ## Format
 
@@ -38,6 +28,16 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
 # Past Workshops
 
 ## Spring 2023
+
+ - May 4, 8am PST/11am EST/4pm GMT - [Register here to join via Zoom](https://unc.zoom.us/meeting/register/tJApf-6gpzgpEteNpbRVH2YfGXnLgYg9l0R3)
+    
+    "The Inter-State Dilemma of Transnational Repression: Origin State Strategies and Host State Variation" by [Connor Kopchick (The University of Maryland - College Park)](https://connorkopchick.weebly.com/)
+    
+    Discussant: [Myunghee Lee (Nordic Institute of Asian Studies)](https://politicalscience.ku.dk/staff/Academic_staff/?pure=en/persons/736780)
+     
+     "Returning Home: Child Soldiers, Cleansing Rituals and Reintegration in Uganda" by [Allen Kiconco (Wits University)](https://wits.academia.edu/AllenKiconco)   
+     
+     Discussant: [Rebecca Tapscott (Geneva Graduate Institute)](https://www.graduateinstitute.ch/discover-institute/rebecca-tapscott)
   - April 6, 8am PST/11am EST/4pm GMT
     
     "Effects of Conflicts on Intimate Partner Violence: Evidence from Mexico" by [Anousheh Alamir (European Centre for Advanced Research in Economics and Statistics)](https://app.getsphere.com/anousheh-alamir)
