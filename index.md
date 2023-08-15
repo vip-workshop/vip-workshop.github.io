@@ -2,7 +2,11 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
-## Check back soon for our Fall 2023 call for proposals!
+## Our call for proposals for Fall 2023 is live [here] (https://forms.gle/GswoAPHGCYvDqua59)! 
+
+Proposals will be accepted until *Aug 28th!*
+
+Mark your calendars for our next meetings: September 21st, October 12th and November 09th at 8am PST/11am EST/4pm GMT.
      
 ## Format
 
@@ -12,8 +16,6 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 # Workshop Information
 
 Sign up [here](https://forms.gle/XyMUkb5W9faWTHh97) to receive emails with updates directly.
-
-*Interest in workshopping your paper for the Fall of 2023? Check back in late Spring for our call for papers!*
 
 We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
 
@@ -111,3 +113,4 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
 - Isabel Laterzo (PhD Candidate, UNC-Chapel Hill)
 - MP Broache (Assistant Professor, UNC-Greensboro)
 - Neeraj Prasad (Assistant Professor, University of Amsterdam)
+- Taylor Vincent (PhD Candidate, University of Maryland)
