@@ -2,7 +2,7 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
-## Our call for proposals for Fall 2023 is live [here] (https://forms.gle/GswoAPHGCYvDqua59)! 
+## Our call for proposals for Fall 2023 is live [here](https://forms.gle/GswoAPHGCYvDqua59)! 
 
 Proposals will be accepted until *Aug 28th!*
 
