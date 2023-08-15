@@ -7,11 +7,6 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 Proposals will be accepted until *Aug 28th!*
 
 Mark your calendars for our next meetings: September 21st, October 12th and November 09th at 8am PST/11am EST/4pm GMT.
-     
-## Format
-
-Our workshops are one-hour-long sessions dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
-
 
 # Workshop Information
 
@@ -25,7 +20,18 @@ Do you want to **discuss** your peers' work? Volunteer as a discussant [here](ht
 
 Scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) can serve as discussants, as long as they are willing to read research-in-progress and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
 
+## Format
 
+Our workshops are one-hour-long sessions dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
+
+## Organizers
+
+- Ana Paula Pellegrino (PhD Candidate, Georgetown University)
+- Amélie Godefroidt (Post-doctoral Scholar, KU Leuven) 
+- Isabel Laterzo (PhD Candidate, UNC-Chapel Hill)
+- MP Broache (Assistant Professor, UNC-Greensboro)
+- Neeraj Prasad (Assistant Professor, University of Amsterdam)
+- Taylor Vincent (PhD Candidate, University of Maryland)
 
 # Past Workshops
 
@@ -104,13 +110,3 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
     “Taking to Kill: The Lethality of Hostage-Taking in Civil War” by [Blair Welsh (Essex)](https://www.blairwelsh.com/)
     
     Discussant: [Jori Breslawski (Tel Aviv University)](https://sites.google.com/view/joribreslawski)
-
-
-# Organizers
-
-- Ana Paula Pellegrino (PhD Candidate, Georgetown University)
-- Amélie Godefroidt (Post-doctoral Scholar, KU Leuven) 
-- Isabel Laterzo (PhD Candidate, UNC-Chapel Hill)
-- MP Broache (Assistant Professor, UNC-Greensboro)
-- Neeraj Prasad (Assistant Professor, University of Amsterdam)
-- Taylor Vincent (PhD Candidate, University of Maryland)
