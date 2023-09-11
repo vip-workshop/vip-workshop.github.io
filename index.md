@@ -2,29 +2,23 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
-## Our call for proposals for Fall 2023 is live [here](https://forms.gle/GswoAPHGCYvDqua59)! 
+## Program - Fall 2023 
 
-Proposals will be accepted until *Aug 28th!*
-
-Mark your calendars for our next meetings: September 21st, October 12th and November 09th at 8am PST/11am EST/4pm GMT.
-
-# Program - Fall 2023 
-
-## September 21, 2023 8am PST/11am EST/4pm GMT
+### September 21, 2023 8am PST/11am EST/4pm GMT
 
 - Sule Yaylaci (UPenn) "Collective Targeting of Violence and Identity Shift: Evidence From Bosnia"
   Discussant: TBD
 - Nihad Aboud (University of Essex) "Affiliation and Jihadist Rhetoric Dynamics: The Case of Boko Haram"
   Discussant: TBD
 
-## October 12, 2023 8am PST/11am EST/4pm GMT
+### October 12, 2023 8am PST/11am EST/4pm GMT
 
 - Frank Wyer (UCLA) "Who's to Blame? How Postconflict Violence Affects Public Support for Peace"
   Discussant: TBD
 - Lucía Tiscornia (UCD) "In the Crevices of the State: Criminal Governance in Contexts of High State Presence and Low Violence"
   Discussant: TBD
 
-## November 9, 2023 8am PST/11am EST/4pm GMT
+### November 9, 2023 8am PST/11am EST/4pm GMT
 
 - Sean Paul Ashley (Dartmouth) "Wartime Institutions and the Durability of Rebel Regimes"
   Discussant: TBD
