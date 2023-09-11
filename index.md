@@ -8,9 +8,32 @@ Proposals will be accepted until *Aug 28th!*
 
 Mark your calendars for our next meetings: September 21st, October 12th and November 09th at 8am PST/11am EST/4pm GMT.
 
+# Program - Fall 2023 
+
+## September 21, 2023 8am PST/11am EST/4pm GMT
+
+- Sule Yaylaci (UPenn) "Collective Targeting of Violence and Identity Shift: Evidence From Bosnia"
+  Discussant: TBD
+- Nihad Aboud (University of Essex) "Affiliation and Jihadist Rhetoric Dynamics: The Case of Boko Haram"
+  Discussant: TBD
+
+## October 12, 2023 8am PST/11am EST/4pm GMT
+
+- Frank Wyer (UCLA) "Who's to Blame? How Postconflict Violence Affects Public Support for Peace"
+  Discussant: TBD
+- Lucía Tiscornia (UCD) "In the Crevices of the State: Criminal Governance in Contexts of High State Presence and Low Violence"
+  Discussant: TBD
+
+## November 9, 2023 8am PST/11am EST/4pm GMT
+
+- Sean Paul Ashley (Dartmouth) "Wartime Institutions and the Durability of Rebel Regimes"
+  Discussant: TBD
+- Sigrid Weber (Stanford) "Where to flee? Exploring household-level destination choices and political integration during displacement in the Kasai, DRC"
+  Discussant: TBD
+
 # Workshop Information
 
-Sign up [here](https://forms.gle/XyMUkb5W9faWTHh97) to receive emails with updates directly.
+Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our google groups receive emails with updates directly (google account required).
 
 We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
 
@@ -26,8 +49,8 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 
 ## Organizers
 
-- Ana Paula Pellegrino (PhD Candidate, Georgetown University)
 - Amélie Godefroidt (Post-doctoral Scholar, KU Leuven) 
+- Ana Paula Pellegrino (PhD Candidate, Georgetown University)
 - Isabel Laterzo (PhD Candidate, UNC-Chapel Hill)
 - MP Broache (Assistant Professor, UNC-Greensboro)
 - Neeraj Prasad (Assistant Professor, University of Amsterdam)
