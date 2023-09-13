@@ -8,7 +8,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 - Sule Yaylaci (UPenn) "Collective Targeting of Violence and Identity Shift: Evidence From Bosnia"
 
-  Discussant: TBD
+  Discussant: Baylee Harrell (University of Kentucky)
   
 - Nihad Aboud (University of Essex) "Affiliation and Jihadist Rhetoric Dynamics: The Case of Boko Haram"
 
