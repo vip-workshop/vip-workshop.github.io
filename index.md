@@ -9,14 +9,14 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 - Sule Yaylaci (UPenn) "Collective Targeting of Violence and Identity Shift: Evidence From Bosnia"
   Discussant: TBD
 - Nihad Aboud (University of Essex) "Affiliation and Jihadist Rhetoric Dynamics: The Case of Boko Haram"
-  Discussant: TBD
+  Discussant: Emma Boyle (LaSalle University)
 
 ### October 12, 2023 8am PST/11am EST/4pm GMT
 
-- Frank Wyer (UCLA) "Who's to Blame? How Postconflict Violence Affects Public Support for Peace"
-  Discussant: TBD
-- Lucía Tiscornia (UCD) "In the Crevices of the State: Criminal Governance in Contexts of High State Presence and Low Violence"
-  Discussant: TBD
+- Frank Wyer (Naval Postgraduate School) "Who's to Blame? How Postconflict Violence Affects Public Support for Peace"
+  Discussant: Juan Albarracín (University of Illinois, Chicago)
+- Lucía Tiscornia (University College Dublin), co-authors: Ines Fynn (Universidad Catolica de Montevideo), Veronica Perez Bentancur (Universidad de la Republica), Gustavo Diaz (McMaster University), "In the Crevices of the State: Criminal Governance in Contexts of High State Presence and Low Violence"
+  Discussant: Nicholas Barnes (University of St Andrews)
 
 ### November 9, 2023 8am PST/11am EST/4pm GMT
 
@@ -27,7 +27,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 # Workshop Information
 
-Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our google groups receive emails with updates directly (google account required).
+Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our google groups receive emails with updates directly.
 
 We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
 
