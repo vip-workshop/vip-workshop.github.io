@@ -7,22 +7,31 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 ### September 21, 2023 8am PST/11am EST/4pm GMT
 
 - Sule Yaylaci (UPenn) "Collective Targeting of Violence and Identity Shift: Evidence From Bosnia"
+
   Discussant: TBD
+  
 - Nihad Aboud (University of Essex) "Affiliation and Jihadist Rhetoric Dynamics: The Case of Boko Haram"
+
   Discussant: Emma Boyle (LaSalle University)
 
 ### October 12, 2023 8am PST/11am EST/4pm GMT
 
 - Frank Wyer (Naval Postgraduate School) "Who's to Blame? How Postconflict Violence Affects Public Support for Peace"
+
   Discussant: Juan Albarracín (University of Illinois, Chicago)
+  
 - Lucía Tiscornia (University College Dublin), co-authors: Ines Fynn (Universidad Catolica de Montevideo), Veronica Perez Bentancur (Universidad de la Republica), Gustavo Diaz (McMaster University), "In the Crevices of the State: Criminal Governance in Contexts of High State Presence and Low Violence"
+
   Discussant: Nicholas Barnes (University of St Andrews)
 
 ### November 9, 2023 8am PST/11am EST/4pm GMT
 
 - Sean Paul Ashley (Dartmouth) "Wartime Institutions and the Durability of Rebel Regimes"
+
   Discussant: TBD
+  
 - Sigrid Weber (Stanford) "Where to flee? Exploring household-level destination choices and political integration during displacement in the Kasai, DRC"
+
   Discussant: TBD
 
 # Workshop Information
