@@ -6,11 +6,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### September 21, 2023 8am PST/11am EST/4pm GMT
 
-- Sule Yaylaci (UPenn) "Collective Targeting of Violence and Identity Shift: Evidence From Bosnia"
+- Sule Yaylaci (UPenn), co-author: Chris Price (Bates College) ["Collective Targeting of Violence and Identity Shift: Evidence From Bosnia"](https://drive.google.com/file/d/1cQloqsTYnm5s63Y4A8K4Nq33lOJTkPMr/view?usp=sharing)
 
   Discussant: Baylee Harrell (University of Kentucky)
   
-- Nihad Aboud (University of Essex) "Affiliation and Jihadist Rhetoric Dynamics: The Case of Boko Haram"
+- Nihad Aboud (University of Essex) ["Affiliation and Jihadist Rhetoric Dynamics: The Case of Boko Haram"](https://drive.google.com/file/d/1ucmzEPEzxkrGnKZ01_kp3lYlkCDKwW4d/view?usp=sharing)
 
   Discussant: Emma Boyle (LaSalle University)
 
