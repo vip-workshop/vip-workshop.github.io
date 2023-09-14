@@ -12,7 +12,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
   
 - Nihad Aboud (University of Essex) ["Affiliation and Jihadist Rhetoric Dynamics: The Case of Boko Haram"](https://drive.google.com/file/d/1ucmzEPEzxkrGnKZ01_kp3lYlkCDKwW4d/view?usp=sharing)
 
-  Discussant: Emma Boyle (LaSalle University)
+  Discussant: Emma Boyle (Penn State Harrisburg)
 
 ### October 12, 2023 8am PST/11am EST/4pm GMT
 
