@@ -4,7 +4,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Program - Fall 2023 
 
-### September 21, 2023 8am PST/11am EST/4pm GMT
+### September 21, 2023 8am PST/11am EST/4pm GMT [Register for Zoom link here](https://uncg.zoom.us/meeting/register/tJwlc-utqz0qGtZymElm2aJoigGnc_4wuYI9#/registration)
 
 - Sule Yaylaci (UPenn), co-author: Chris Price (Bates College) ["Collective Targeting of Violence and Identity Shift: Evidence From Bosnia"](https://drive.google.com/file/d/1cQloqsTYnm5s63Y4A8K4Nq33lOJTkPMr/view?usp=sharing)
 
