@@ -10,7 +10,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: Juan Albarracín (University of Illinois, Chicago)
   
-- Lucía Tiscornia (University College Dublin), co-authors: Ines Fynn (Universidad Catolica de Montevideo), Veronica Perez Bentancur (Universidad de la Republica), Gustavo Diaz (McMaster University), "In the Crevices of the State: Criminal Governance in Contexts of High State Presence and Low Violence"
+- Lucía Tiscornia (University College Dublin), co-authors: Ines Fynn (Universidad Catolica del Uruguay), Veronica Perez Bentancur (Universidad de la Republica), Gustavo Diaz (McMaster University), "In the Crevices of the State: Criminal Governance in Contexts of High State Presence and Low Violence"
 
   Discussant: Nicholas Barnes (University of St Andrews)
 
