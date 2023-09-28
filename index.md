@@ -4,17 +4,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Program - Fall 2023 
 
-### September 21, 2023 8am PST/11am EST/4pm GMT [Register for Zoom link here](https://uncg.zoom.us/meeting/register/tJwlc-utqz0qGtZymElm2aJoigGnc_4wuYI9#/registration)
-
-- Sule Yaylaci (UPenn), co-author: Chris Price (Bates College) ["Collective Targeting of Violence and Identity Shift: Evidence From Bosnia"](https://drive.google.com/file/d/1cQloqsTYnm5s63Y4A8K4Nq33lOJTkPMr/view?usp=sharing)
-
-  Discussant: Baylee Harrell (University of Kentucky)
-  
-- Nihad Aboud (University of Essex) ["Affiliation and Jihadist Rhetoric Dynamics: The Case of Boko Haram"](https://drive.google.com/file/d/1ucmzEPEzxkrGnKZ01_kp3lYlkCDKwW4d/view?usp=sharing)
-
-  Discussant: Emma Boyle (Penn State Harrisburg)
-
-### October 12, 2023 8am PST/11am EST/4pm GMT
+### October 12, 2023 8am PST/11am EST/4pm GMT [Register to attend via Zoom here](https://unc.zoom.us/meeting/register/tJEqdumqqTsqE9LA8CeNfWEy7dlPUECU5Qg3)
 
 - Frank Wyer (Naval Postgraduate School) "Who's to Blame? How Postconflict Violence Affects Public Support for Peace"
 
@@ -60,6 +50,18 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 - Taylor Vincent (PhD Candidate, University of Maryland)
 
 # Past Workshops
+
+## Fall 2023
+
+### September 21, 2023 8am PST/11am EST/4pm GMT 
+
+- Sule Yaylaci (UPenn), co-author: Chris Price (Bates College) "Collective Targeting of Violence and Identity Shift: Evidence From Bosnia"
+
+  Discussant: Baylee Harrell (University of Kentucky)
+  
+- Nihad Aboud (University of Essex) "Affiliation and Jihadist Rhetoric Dynamics: The Case of Boko Haram"
+
+  Discussant: Emma Boyle (Penn State Harrisburg)
 
 ## Spring 2023
 
