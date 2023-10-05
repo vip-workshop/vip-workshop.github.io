@@ -6,11 +6,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### October 12, 2023 8am PST/11am EST/4pm GMT [Register to attend via Zoom here](https://unc.zoom.us/meeting/register/tJEqdumqqTsqE9LA8CeNfWEy7dlPUECU5Qg3)
 
-- Frank Wyer (Naval Postgraduate School) "Who's to Blame? How Postconflict Violence Affects Public Support for Peace"
+- Frank Wyer (Naval Postgraduate School) ["Who's to Blame? How Postconflict Violence Affects Public Support for Peace"](https://drive.google.com/file/d/1lavO_tSa-HAYVdOF9x4UsyDiHOT9mwL2/view?usp=sharing)
 
   Discussant: Juan Albarracín (University of Illinois, Chicago)
   
-- Lucía Tiscornia (University College Dublin), co-authors: Ines Fynn (Universidad Catolica del Uruguay), Veronica Perez Bentancur (Universidad de la Republica), Gustavo Diaz (McMaster University), "In the Crevices of the State: Criminal Governance in Contexts of High State Presence and Low Violence"
+- Lucía Tiscornia (University College Dublin), co-authors: Ines Fynn (Universidad Catolica del Uruguay), Veronica Perez Bentancur (Universidad de la Republica), Gustavo Diaz (McMaster University), ["In the Crevices of the State: Criminal Governance in Contexts of High State Presence and Low Violence"](https://drive.google.com/file/d/1ORLmj7MV7ZXDS0V32wtWANKSIIy4miX3/view?usp=sharing)
 
   Discussant: Nicholas Barnes (University of St Andrews)
 
