@@ -4,7 +4,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Program - Fall 2023 
 
-### November 9, 2023 8am PST/11am EST/4pm GMT [Register to attend via Zoom here](https://georgetown.zoom.us/meeting/register/tJAtfumhpzwqH9z5ids-HlrI7lubFFTUMQlx)
+### November 9, 2023 8am PST/11am EST/5pm GMT [Register to attend via Zoom here](https://georgetown.zoom.us/meeting/register/tJAtfumhpzwqH9z5ids-HlrI7lubFFTUMQlx)
 
 - Sean Paul Ashley (Dartmouth) "Wartime Institutions and the Durability of Rebel Regimes"
 
