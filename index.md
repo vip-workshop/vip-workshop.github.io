@@ -8,11 +8,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 - Sean Paul Ashley (Dartmouth) "Wartime Institutions and the Durability of Rebel Regimes"
 
-  Discussant: Mateo Villamizar Chaparro (UPenn)
+  Discussant: Andres Uribe (Stanford University)
   
 - Sigrid Weber (Stanford) "Where to flee? Exploring household-level destination choices and political integration during displacement in the Kasai, DRC"
 
-  Discussant: Ankushi Mitra (Georgetown University)
+  Discussant: Mateo Villamizar Chaparro (UPenn)
 
 # Workshop Information
 
