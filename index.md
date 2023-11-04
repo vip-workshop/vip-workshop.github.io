@@ -6,11 +6,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### November 9, 2023 8am PST/11am EST/5pm GMT [Register to attend via Zoom here](https://georgetown.zoom.us/meeting/register/tJAtfumhpzwqH9z5ids-HlrI7lubFFTUMQlx)
 
-- Sean Paul Ashley (Dartmouth) "Wartime Institutions and the Durability of Rebel Regimes"
+- Sean Paul Ashley (Dartmouth) ["Wartime Institutions and the Durability of Rebel Regimes"](https://drive.google.com/file/d/1e8Za2XL-Muv8oMOp5haTAj1_rOZ0ZgLz/view?usp=sharing)
 
   Discussant: Andres Uribe (Stanford University)
   
-- Sigrid Weber (Stanford) "Where to flee? Exploring household-level destination choices and political integration during displacement in the Kasai, DRC"
+- Sigrid Weber (Stanford) ["Where to flee? Exploring household-level destination choices and political integration during displacement in the Kasai, DRC"](https://drive.google.com/file/d/1ykVIn9dYHntS0eZyvm3aBOTvKV33HHZT/view?usp=sharing)
 
   Discussant: Mateo Villamizar Chaparro (UPenn)
 
@@ -65,7 +65,7 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 
 ## Spring 2023
 
- - May 4, 8am PST/11am EST/4pm GMT - [Register here to join via Zoom](https://unc.zoom.us/meeting/register/tJApf-6gpzgpEteNpbRVH2YfGXnLgYg9l0R3)
+ - May 4, 8am PST/11am EST/4pm GMT
     
     "The Inter-State Dilemma of Transnational Repression: Origin State Strategies and Host State Variation" by [Connor Kopchick (The University of Maryland - College Park)](https://connorkopchick.weebly.com/)
     
