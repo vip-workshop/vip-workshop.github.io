@@ -2,16 +2,6 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
-# Call for Spring 2024 Paper Submissions
-
-We are happy to announce the call for proposals for our Spring 2024 series! 
-
-We will be hosting three virtual workshops next semester on 02/15, 03/14, and 04/25 at 8am PST/11am EST/4pm GMT. More information on the call and links to apply are below. The deadline for applications is January 5th, 2024. Please share this message with your networks!
-
-If you are interested in presenting your work this semester, [please apply here](https://forms.gle/KQhardh1nb8DUwZg7) by January 5th at 11:59pm EST.
-
-We are also looking for discussants! If you are interested in serving as a discussant, [please indicate so here](https://forms.gle/2hyBxrYhg4mVXiEWA)
-
 # Workshop Information
 
 Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our google groups receive emails with updates directly.
@@ -27,6 +17,16 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
 ## Format
 
 Our workshops are one-hour-long sessions dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
+
+## Call for Spring 2024 Paper Submissions
+
+We are happy to announce the call for proposals for our Spring 2024 series! 
+
+We will be hosting three virtual workshops next semester on 02/15, 03/14, and 04/25 at 8am PST/11am EST/4pm GMT. The deadline for applications is January 5th, 2024. Please share this message with your networks!
+
+If you are interested in presenting your work this semester, [please apply here](https://forms.gle/KQhardh1nb8DUwZg7) by January 5th at 11:59pm EST.
+
+We are also looking for discussants! If you are interested in serving as a discussant, [please indicate so here](https://forms.gle/2hyBxrYhg4mVXiEWA)
 
 ## Organizers
 
