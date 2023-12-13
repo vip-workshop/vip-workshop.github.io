@@ -2,17 +2,15 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
-## Program - Fall 2023 
+# Call for Spring 2024 Paper Submissions
 
-### November 9, 2023 8am PST/11am EST/5pm GMT [Register to attend via Zoom here](https://georgetown.zoom.us/meeting/register/tJAtfumhpzwqH9z5ids-HlrI7lubFFTUMQlx)
+We are happy to announce the call for proposals for our Spring 2024 series! 
 
-- Sean Paul Ashley (Dartmouth) ["Wartime Institutions and the Durability of Rebel Regimes"](https://drive.google.com/file/d/1e8Za2XL-Muv8oMOp5haTAj1_rOZ0ZgLz/view?usp=sharing)
+We will be hosting three virtual workshops next semester on 02/15, 03/14, and 04/25 at 8am PST/11am EST/4pm GMT. More information on the call and links to apply are below. The deadline for applications is January 5th, 2024. Please share this message with your networks!
 
-  Discussant: [Andres Uribe (Stanford University)](https://www.andresduribe.com/)
-  
-- Sigrid Weber (Stanford) ["Where to flee? Exploring household-level destination choices and political integration during displacement in the Kasai, DRC"](https://drive.google.com/file/d/1ykVIn9dYHntS0eZyvm3aBOTvKV33HHZT/view?usp=sharing)
+If you are interested in presenting your work this semester, [please apply here](https://forms.gle/KQhardh1nb8DUwZg7) by January 5th at 11:59pm EST.
 
-  Discussant: [Mateo Villamizar Chaparro (Duke University)](https://mateovillamizarchaparro.github.io/)
+We are also looking for discussants! If you are interested in serving as a discussant, [please indicate so here](https://forms.gle/2hyBxrYhg4mVXiEWA)
 
 # Workshop Information
 
@@ -36,12 +34,21 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 - Ana Paula Pellegrino (PhD Candidate, Georgetown University)
 - Isabel Laterzo (PhD Candidate, UNC-Chapel Hill)
 - MP Broache (Assistant Professor, UNC-Greensboro)
-- Neeraj Prasad (Assistant Professor, University of Amsterdam)
 - Taylor Vincent (PhD Candidate, University of Maryland)
 
 # Past Workshops
 
 ## Fall 2023
+
+### November 9, 2023 8am PST/11am EST/5pm GMT 
+
+- Sean Paul Ashley (Dartmouth) "Wartime Institutions and the Durability of Rebel Regimes"
+
+  Discussant: Andres Uribe (Stanford University)
+  
+- Sigrid Weber (Stanford) "Where to flee? Exploring household-level destination choices and political integration during displacement in the Kasai, DRC"
+
+  Discussant: Mateo Villamizar Chaparro (Duke University)
 
 ### October 12, 2023 8am PST/11am EST/4pm GMT
 
