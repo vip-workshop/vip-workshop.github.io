@@ -2,15 +2,38 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
-## Call for Spring 2024 Paper Submissions
 
-We are happy to announce the call for proposals for our Spring 2024 series! 
+## Spring 2024 Workshop Lineup
 
-We will be hosting three virtual workshops next semester on 02/15, 03/14, and 04/25 at 8am PST/11am EST/4pm GMT. The deadline for applications is January 5th, 2024. Please share this message with your networks!
+### February 15, 2024 8am PST/11am EST/5pm GMT 
 
-If you are interested in presenting your work this semester, [please apply here](https://forms.gle/KQhardh1nb8DUwZg7) by January 5th at 11:59pm EST.
+- Kirssa Ryckman (University of Arizona) “Return to the Streets: The Recurrence of Civil Resistance Campaigns”
 
-We are also looking for discussants! If you are interested in serving as a discussant, [please indicate so here](https://forms.gle/2hyBxrYhg4mVXiEWA)
+  Discussant: TBD
+  
+- Carly Millerd (University of Iowa) “The Emergence of Networks of Women’s Civil Society Organizations During Civil Wars”
+
+  Discussant: TBD
+
+### March 14, 2024 8am PST/11am EST/5pm GMT 
+
+- Madeleine Stevens (University of Chicago), “’Por Algo Será:’ Disappearances in Authoritarian Argentina”
+
+  Discussant: TBD
+  
+- Diego Sazo (London School of Economics) “The Violence Disconnection: Broken Societies and The Logic of Civil Disorder in South America (2017-2020)”
+
+  Discussant: TBD
+
+### April 25, 2024 8am PST/11am EST/5pm GMT 
+
+- Mariana V. Ramírez Bustamente (Vanderbilt University) “How Do Drug-trafficking Organizations Shape Political Attitudes? Evidence from Peru”
+
+  Discussant: TBD
+  
+- Elisa D’Amico (University of St. Andrews) “Beyond Borders: Humanitarian-Based Mediation in African Conflicts through Refugee Schocks”
+
+  Discussant: TBD
 
 # Workshop Information
 
