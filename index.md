@@ -17,7 +17,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### March 14, 2024 8am PST/11am EST/5pm GMT 
 
-- Madeleine Stevens (University of Chicago), “’Por Algo Será:’ Disappearances in Authoritarian Argentina”
+- Madeleine Stevens (University of Chicago) “’Por Algo Será:’ Disappearances in Authoritarian Argentina”
 
   Discussant: TBD
   
