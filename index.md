@@ -53,11 +53,13 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 
 ## Organizers
 
-- Amélie Godefroidt (Post-doctoral Scholar, KU Leuven) 
-- Ana Paula Pellegrino (PhD Candidate, Georgetown University)
-- Isabel Laterzo (PhD Candidate, UNC-Chapel Hill)
+- [Amélie Godefroidt](https://www.ameliegodefroidt.com/) (Post-doctoral Scholar, KU Leuven)
+- [Ankushi Mitra](https://gufaculty360.georgetown.edu/s/contact/00336000014SkQTAA0/ankushi-mitra?itid=ai_top_undefined) (PhD Candidate, Georgetown University)
+- [Ana Paula Pellegrino](https://anappellegrino.github.io/) (PhD Candidate, Georgetown University)
+- [Isabel Laterzo](https://isabellaterzo.com/) (PhD Candidate, UNC-Chapel Hill)
 - MP Broache (Assistant Professor, UNC-Greensboro)
-- Taylor Vincent (PhD Candidate, University of Maryland)
+- [Merve Keskin](https://mervekeskin.com/) (PhD Candidate, University of Pittsburgh)
+- [Taylor Vincent](https://tayloravincent.wordpress.com/) (PhD Candidate, University of Maryland)
 
 # Past Workshops
 
