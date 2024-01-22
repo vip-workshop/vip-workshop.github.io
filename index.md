@@ -5,7 +5,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Spring 2024 Workshop Lineup
 
-### February 15, 2024 8am PST/11am EST/5pm GMT 
+### February 15, 2024 8am PST/11am EST/4pm GMT 
 
 - Kirssa Ryckman (University of Arizona) “Return to the Streets: The Recurrence of Civil Resistance Campaigns”
 
@@ -15,7 +15,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: TBD
 
-### March 14, 2024 8am PST/11am EST/5pm GMT 
+### March 14, 2024 8am PST/11am EST/3pm GMT 
 
 - Madeleine Stevens (University of Chicago) “’Por Algo Será:’ Disappearances in Authoritarian Argentina”
 
@@ -25,7 +25,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: TBD
 
-### April 25, 2024 8am PST/11am EST/5pm GMT 
+### April 25, 2024 8am PST/11am EST/3pm GMT 
 
 - Mariana V. Ramírez Bustamente (Vanderbilt University) “How Do Drug-trafficking Organizations Shape Political Attitudes? Evidence from Peru”
 
