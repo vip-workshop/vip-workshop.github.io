@@ -9,11 +9,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 - Kirssa Ryckman (University of Arizona) “Return to the Streets: The Recurrence of Civil Resistance Campaigns”
 
-  Discussant: TBD
+  Discussant: Austin Mitchell (Norwegian University of Science and Technology)
   
 - Carly Millerd (University of Iowa) “The Emergence of Networks of Women’s Civil Society Organizations During Civil Wars”
 
-  Discussant: TBD
+  Discussant: Kathleen Gallagher Cunningham (University of Maryland)
 
 ### March 14, 2024 8am PST/11am EST/3pm GMT 
 
