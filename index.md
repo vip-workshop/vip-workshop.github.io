@@ -13,7 +13,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
   
 - [Carly Millerd](https://carlymillerd.weebly.com/) (University of Iowa) [“The Emergence of Networks of Women’s Civil Society Organizations During Civil Wars”](https://drive.google.com/file/d/1Ir5BcDdAEYVgP-Uvrk5ln4hzWvAogD5b/view?usp=sharing)
 
-  Discussant: [Kathleen Gallagher Cunningham]([http://www.kathleengallaghercunningham.com/](https://gvpt.umd.edu/facultyprofile/cunningham/kathleen-gallagher) (University of Maryland)
+  Discussant: [Kathleen Gallagher Cunningham](https://gvpt.umd.edu/facultyprofile/cunningham/kathleen-gallagher)(University of Maryland)
 
 ### March 14, 2024 8am PST/11am EST/3pm GMT 
 
