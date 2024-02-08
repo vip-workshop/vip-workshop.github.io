@@ -5,7 +5,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Spring 2024 Workshop Lineup
 
-### February 15, 2024 8am PST/11am EST/4pm GMT 
+### February 15, 2024 8am PST/11am EST/4pm GMT: [Register here for Zoom link](https://unc.zoom.us/meeting/register/tJMkfu2przIjE9GSM-ZPHARpMTR82POWJwFA#/registration)
 
 - [Kirssa Ryckman](https://kirssaryckman.weebly.com/) (University of Arizona) [“Return to the Streets: The Recurrence of Civil Resistance Campaigns”](https://drive.google.com/file/d/1Y4VpdMcAwDlMnORDyIHSNoKqL1D4bknX/view?usp=sharing)
 
@@ -13,7 +13,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
   
 - [Carly Millerd](https://carlymillerd.weebly.com/) (University of Iowa) [“The Emergence of Networks of Women’s Civil Society Organizations During Civil Wars”](https://drive.google.com/file/d/1Ir5BcDdAEYVgP-Uvrk5ln4hzWvAogD5b/view?usp=sharing)
 
-  Discussant: [Kathleen Gallagher Cunningham](http://www.kathleengallaghercunningham.com/) (University of Maryland)
+  Discussant: [Kathleen Gallagher Cunningham]([http://www.kathleengallaghercunningham.com/](https://gvpt.umd.edu/facultyprofile/cunningham/kathleen-gallagher) (University of Maryland)
 
 ### March 14, 2024 8am PST/11am EST/3pm GMT 
 
