@@ -5,7 +5,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Spring 2024 Workshop Lineup
 
-### February 15, 2024 8am PST/11am EST/4pm GMT: [Register here for Zoom link](https://unc.zoom.us/meeting/register/tJMkfu2przIjE9GSM-ZPHARpMTR82POWJwFA#/registration)
+### February 15, 2024 8am PST/11am EST/4pm GMT: 
 
 - [Kirssa Ryckman](https://kirssaryckman.weebly.com/) (University of Arizona) [“Return to the Streets: The Recurrence of Civil Resistance Campaigns”](https://drive.google.com/file/d/1Y4VpdMcAwDlMnORDyIHSNoKqL1D4bknX/view?usp=sharing)
 
@@ -15,15 +15,15 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [Kathleen Gallagher Cunningham](https://gvpt.umd.edu/facultyprofile/cunningham/kathleen-gallagher) (University of Maryland)
 
-### March 14, 2024 8am PST/11am EST/3pm GMT 
+### March 14, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://georgetown.zoom.us/meeting/register/tJYqdu6hqjkpHNctXB2euet9O_MMPsWxktKv)
 
 - Madeleine Stevens (University of Chicago) “’Por Algo Será:’ Disappearances in Authoritarian Argentina”
 
-  Discussant: TBD
+  Discussant: [Jane Esberg](https://www.janeesberg.com/) (UPenn)
   
 - Diego Sazo (London School of Economics) “The Violence Disconnection: Broken Societies and The Logic of Civil Disorder in South America (2017-2020)”
 
-  Discussant: TBD
+  Discussant: [Mason Moseley](https://www.masonmoseley.com/) (University of West Virginia)
 
 ### April 25, 2024 8am PST/11am EST/3pm GMT 
 
