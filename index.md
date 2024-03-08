@@ -17,11 +17,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### March 14, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://georgetown.zoom.us/meeting/register/tJYqdu6hqjkpHNctXB2euet9O_MMPsWxktKv)
 
-- Madeleine Stevens (University of Chicago) “’Por Algo Será:’ Disappearances in Authoritarian Argentina”
+- Madeleine Stevens (University of Chicago) [“’Por Algo Será:’ Disappearances in Authoritarian Argentina”](https://drive.google.com/file/d/1cKxGJOCdFhgpJtnI0i0Xu55BaxPAMyaz/view?usp=sharing)
 
   Discussant: [Jane Esberg](https://www.janeesberg.com/) (UPenn)
   
-- Diego Sazo (London School of Economics) “The Violence Disconnection: Broken Societies and The Logic of Civil Disorder in South America (2017-2020)”
+- Diego Sazo (London School of Economics) [“The Violence Disconnection: Broken Societies and The Logic of Civil Disorder in South America (2017-2020)”](https://drive.google.com/file/d/1BShXOBVgjtB_OxGGDlejmNqwFMCHcJ9R/view?usp=sharing)
 
   Discussant: [Mason Moseley](https://www.masonmoseley.com/) (University of West Virginia)
 
