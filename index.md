@@ -5,16 +5,6 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Spring 2024 Workshop Lineup
 
-### February 15, 2024 8am PST/11am EST/4pm GMT: 
-
-- [Kirssa Ryckman](https://kirssaryckman.weebly.com/) (University of Arizona) [“Return to the Streets: The Recurrence of Civil Resistance Campaigns”](https://drive.google.com/file/d/1Y4VpdMcAwDlMnORDyIHSNoKqL1D4bknX/view?usp=sharing)
-
-  Discussant: [Austin Mitchell](https://www.austin-mitchell.com/) (Norwegian University of Science and Technology)
-  
-- [Carly Millerd](https://carlymillerd.weebly.com/) (University of Iowa) [“The Emergence of Networks of Women’s Civil Society Organizations During Civil Wars”](https://drive.google.com/file/d/1Ir5BcDdAEYVgP-Uvrk5ln4hzWvAogD5b/view?usp=sharing)
-
-  Discussant: [Kathleen Gallagher Cunningham](https://gvpt.umd.edu/facultyprofile/cunningham/kathleen-gallagher) (University of Maryland)
-
 ### March 14, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://georgetown.zoom.us/meeting/register/tJYqdu6hqjkpHNctXB2euet9O_MMPsWxktKv)
 
 - Madeleine Stevens (University of Chicago) [“’Por Algo Será:’ Disappearances in Authoritarian Argentina”](https://drive.google.com/file/d/1cKxGJOCdFhgpJtnI0i0Xu55BaxPAMyaz/view?usp=sharing)
@@ -62,6 +52,18 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 - [Taylor Vincent](https://tayloravincent.wordpress.com/) (PhD Candidate, University of Maryland)
 
 # Past Workshops
+
+## Spring 2024
+
+### February 15, 2024 8am PST/11am EST/4pm GMT: 
+
+- [Kirssa Ryckman](https://kirssaryckman.weebly.com/) (University of Arizona) “Return to the Streets: The Recurrence of Civil Resistance Campaigns”
+
+  Discussant: [Austin Mitchell](https://www.austin-mitchell.com/) (Norwegian University of Science and Technology)
+  
+- [Carly Millerd](https://carlymillerd.weebly.com/) (University of Iowa) “The Emergence of Networks of Women’s Civil Society Organizations During Civil Wars”
+
+  Discussant: [Kathleen Gallagher Cunningham](https://gvpt.umd.edu/facultyprofile/cunningham/kathleen-gallagher) (University of Maryland)
 
 ## Fall 2023
 
