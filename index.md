@@ -5,23 +5,14 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Spring 2024 Workshop Lineup
 
-### March 14, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://georgetown.zoom.us/meeting/register/tJYqdu6hqjkpHNctXB2euet9O_MMPsWxktKv)
 
-- Madeleine Stevens (University of Chicago) [“’Por Algo Será:’ Disappearances in Authoritarian Argentina”](https://drive.google.com/file/d/1cKxGJOCdFhgpJtnI0i0Xu55BaxPAMyaz/view?usp=sharing)
+### April 25, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://georgetown.zoom.us/meeting/register/tJ0tceyprjwiHtLfxC8i3rRxKFl_M7XEdTZY)
 
-  Discussant: [Jane Esberg](https://www.janeesberg.com/) (UPenn)
-  
-- Diego Sazo (London School of Economics) [“The Violence Disconnection: Broken Societies and The Logic of Civil Disorder in South America (2017-2020)”](https://drive.google.com/file/d/1BShXOBVgjtB_OxGGDlejmNqwFMCHcJ9R/view?usp=sharing)
-
-  Discussant: [Mason Moseley](https://www.masonmoseley.com/) (University of West Virginia)
-
-### April 25, 2024 8am PST/11am EST/3pm GMT 
-
-- Mariana V. Ramírez Bustamente (Vanderbilt University) “How Do Drug-trafficking Organizations Shape Political Attitudes? Evidence from Peru”
+- Mariana V. Ramírez Bustamente (Vanderbilt University) [“How Do Drug-trafficking Organizations Shape Political Attitudes? Evidence from Peru”](https://drive.google.com/file/d/1DZYEwo26onG9PySwTEGG41ZM-ei3YTuU/view)
 
   Discussant: TBD
   
-- Elisa D’Amico (University of St. Andrews) “Beyond Borders: Humanitarian-Based Mediation in African Conflicts through Refugee Schocks”
+- Elisa D’Amico (University of St. Andrews) [“Beyond Borders: Humanitarian-Based Mediation in African Conflicts through Refugee Schocks”](https://drive.google.com/file/d/17MRZJOZPhxNd4AkiERq67k1T53pb2S-W/view)
 
   Discussant: TBD
 
@@ -64,6 +55,16 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 - [Carly Millerd](https://carlymillerd.weebly.com/) (University of Iowa) “The Emergence of Networks of Women’s Civil Society Organizations During Civil Wars”
 
   Discussant: [Kathleen Gallagher Cunningham](https://gvpt.umd.edu/facultyprofile/cunningham/kathleen-gallagher) (University of Maryland)
+
+### March 14, 2024 8am PST/11am EST/3pm GMT 
+
+- Madeleine Stevens (University of Chicago) [“’Por Algo Será:’ Disappearances in Authoritarian Argentina”](https://drive.google.com/file/d/1cKxGJOCdFhgpJtnI0i0Xu55BaxPAMyaz/view?usp=sharing)
+
+  Discussant: [Jane Esberg](https://www.janeesberg.com/) (UPenn)
+  
+- Diego Sazo (London School of Economics) [“The Violence Disconnection: Broken Societies and The Logic of Civil Disorder in South America (2017-2020)”](https://drive.google.com/file/d/1BShXOBVgjtB_OxGGDlejmNqwFMCHcJ9R/view?usp=sharing)
+
+  Discussant: [Mason Moseley](https://www.masonmoseley.com/) (University of West Virginia)
 
 ## Fall 2023
 
