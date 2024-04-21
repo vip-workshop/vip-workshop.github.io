@@ -12,7 +12,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: Gabriella Levy, Brown University
   
-- Elisa D’Amico (University of St. Andrews) [“Beyond Borders: Humanitarian-Based Mediation in African Conflicts through Refugee Schocks”](https://drive.google.com/file/d/17MRZJOZPhxNd4AkiERq67k1T53pb2S-W/view)
+- Elisa D’Amico (University of St. Andrews) [“Beyond Borders: Humanitarian-Based Mediation in African Conflicts through Refugee Shocks”](https://drive.google.com/file/d/17MRZJOZPhxNd4AkiERq67k1T53pb2S-W/view)
 
   Discussant: Chris Blair, Princeton University
 
