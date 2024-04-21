@@ -10,11 +10,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 - Mariana V. Ramírez Bustamente (Vanderbilt University) [“How Do Drug-trafficking Organizations Shape Political Attitudes? Evidence from Peru”](https://drive.google.com/file/d/1DZYEwo26onG9PySwTEGG41ZM-ei3YTuU/view)
 
-  Discussant: TBD
+  Discussant: Gabriella Levy, Brown University
   
 - Elisa D’Amico (University of St. Andrews) [“Beyond Borders: Humanitarian-Based Mediation in African Conflicts through Refugee Schocks”](https://drive.google.com/file/d/17MRZJOZPhxNd4AkiERq67k1T53pb2S-W/view)
 
-  Discussant: TBD
+  Discussant: Chris Blair, Princeton University
 
 # Workshop Information
 
