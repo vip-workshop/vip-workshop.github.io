@@ -12,13 +12,13 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: Gabriella Levy, Brown University
   
-- Elisa D’Amico (University of St. Andrews) [“Beyond Borders: Humanitarian-Based Mediation in African Conflicts through Refugee Schocks”](https://drive.google.com/file/d/17rmj3ZInSGUZhCvI4W5UXUuuQkF3bfpo/view?usp=sharing)
+- Elisa D’Amico (University of St. Andrews) [“Beyond Borders: Humanitarian-Based Mediation in African Conflicts through Refugee Shocks”](https://drive.google.com/file/d/17rmj3ZInSGUZhCvI4W5UXUuuQkF3bfpo/view?usp=sharing)
 
   Discussant: Chris Blair, Princeton University
 
 # Workshop Information
 
-Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our google groups receive emails with updates directly.
+Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our Google groups to receive emails with updates directly.
 
 We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
 
