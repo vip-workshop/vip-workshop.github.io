@@ -3,18 +3,21 @@
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
 
-## Spring 2024 Workshop Lineup
+## Fall 2024 Workshop Lineup
 
+### September 25, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://pitt.zoom.us/j/96883573644)
 
-### April 25, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://georgetown.zoom.us/meeting/register/tJ0tceyprjwiHtLfxC8i3rRxKFl_M7XEdTZY)
+- Imrana Alhaji Buba (University of Oslo) [“From Survival to Subjugation: Civilian Cooperation with Boko Haram in Nigeria”]()
 
-- Mariana V. Ramírez Bustamente (Vanderbilt University) [“How Do Drug-trafficking Organizations Shape Political Attitudes? Evidence from Peru”](https://drive.google.com/file/d/1LG-05neevINB6wskNmMWXQ4eJMKd-3Qo/view?usp=sharing)
-
-  Discussant: Gabriella Levy, Brown University
+  Discussant: TBA
   
-- Elisa D’Amico (University of St. Andrews) [“Beyond Borders: Humanitarian-Based Mediation in African Conflicts through Refugee Shocks”](https://drive.google.com/file/d/17rmj3ZInSGUZhCvI4W5UXUuuQkF3bfpo/view?usp=sharing)
+- Amanda Rizkallah (Chown) (Pepperdine University) [“Civil War Participation, Victimization, and the Development of Post-Conflict Partisan Identity: Evidence from Lebanon”](https://drive.google.com/file/d/17rmj3ZInSGUZhCvI4W5UXUuuQkF3bfpo/view?usp=sharing)
 
-  Discussant: Chris Blair, Princeton University
+  Discussant: TBA
+
+### October 24, 2024 8am PST/11am EST/3pm GMT 
+
+### November 21, 2024 8am PST/11am EST/3pm GMT 
 
 # Workshop Information
 
@@ -39,12 +42,22 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 - [Ana Paula Pellegrino](https://anappellegrino.github.io/) (PhD Candidate, Georgetown University)
 - [Isabel Laterzo](https://isabellaterzo.com/) (PhD Candidate, UNC-Chapel Hill)
 - MP Broache (Assistant Professor, UNC-Greensboro)
-- [Merve Keskin](https://mervekeskin.com/) (PhD Candidate, University of Pittsburgh)
+- [Merve Keskin](https://mervekeskin20.github.io) (PhD Candidate, University of Pittsburgh)
 - [Taylor Vincent](https://tayloravincent.wordpress.com/) (PhD Candidate, University of Maryland)
 
 # Past Workshops
 
 ## Spring 2024
+
+### April 25, 2024 8am PST/11am EST/3pm GMT
+
+- Mariana V. Ramírez Bustamente (Vanderbilt University) [“How Do Drug-trafficking Organizations Shape Political Attitudes? Evidence from Peru”](https://drive.google.com/file/d/1LG-05neevINB6wskNmMWXQ4eJMKd-3Qo/view?usp=sharing)
+
+  Discussant: Gabriella Levy, Brown University
+  
+- Elisa D’Amico (University of St. Andrews) [“Beyond Borders: Humanitarian-Based Mediation in African Conflicts through Refugee Shocks”](https://drive.google.com/file/d/17rmj3ZInSGUZhCvI4W5UXUuuQkF3bfpo/view?usp=sharing)
+
+  Discussant: Chris Blair, Princeton University
 
 ### February 15, 2024 8am PST/11am EST/4pm GMT: 
 
