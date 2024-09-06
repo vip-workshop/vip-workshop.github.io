@@ -11,11 +11,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: TBA
   
-- Amanda Rizkallah (Chown) (Pepperdine University) [“Civil War Participation, Victimization, and the Development of Post-Conflict Partisan Identity: Evidence from Lebanon”](https://drive.google.com/file/d/17rmj3ZInSGUZhCvI4W5UXUuuQkF3bfpo/view?usp=sharing)
+- Amanda Rizkallah (Chown) (Pepperdine University) [“Civil War Participation, Victimization, and the Development of Post-Conflict Partisan Identity: Evidence from Lebanon”]()
 
   Discussant: TBA
 
-### October 24, 2024 8am PST/11am EST/3pm GMT 
+### October 24, 2024 8am PST/11am EST/3pm GMT
 
 ### November 21, 2024 8am PST/11am EST/3pm GMT 
 
