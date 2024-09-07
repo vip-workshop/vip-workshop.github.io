@@ -11,13 +11,21 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: TBA
   
-- Amanda Rizkallah (Chown) (Pepperdine University) [“Civil War Participation, Victimization, and the Development of Post-Conflict Partisan Identity: Evidence from Lebanon”]()
+- Amanda Rizkallah (Pepperdine University) [“Civil War Participation, Victimization, and the Development of Post-Conflict Partisan Identity: Evidence from Lebanon”]()
 
   Discussant: TBA
 
 ### October 24, 2024 8am PST/11am EST/3pm GMT
 
+- Juan David Gelvez (University of Maryland), ["Does Crime Matter? The Politics of Crime Prevention in Colombia"]()
+
+- Natalia Pia Guerrero Trinidad (University of Minnesota), ["Non-State Social Structures and Social Capital: Evidence on Crime and Conflict"]()
+  
 ### November 21, 2024 8am PST/11am EST/3pm GMT 
+
+- Shirley Le Penne (Cornell University), ["Guillotining the Political"]()
+  
+- Jia Li (Utah State University), ["I Leave in Peace: Autocratic Elections and Negotiated Regime Transitions"]()
 
 # Workshop Information
 
