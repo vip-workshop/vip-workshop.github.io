@@ -5,7 +5,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Fall 2024 Workshop Lineup
 
-### September 25, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://pitt.zoom.us/j/96883573644)
+### September 26, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://pitt.zoom.us/j/96883573644)
 
 - Imrana Alhaji Buba (University of Oslo) [“From Survival to Subjugation: Civilian Cooperation with Boko Haram in Nigeria”]()
 
