@@ -7,11 +7,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### September 26, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://pitt.zoom.us/j/96883573644)
 
-- Imrana Alhaji Buba (University of Oslo) [“From Survival to Subjugation: Civilian Cooperation with Boko Haram in Nigeria”]()
+- Imrana Alhaji Buba (University of Oslo) [“From Survival to Subjugation: Civilian Cooperation with Boko Haram in Nigeria”](https://drive.google.com/file/d/1wxLo2lnFFenyxB1-qZTWVM_QNKmpGAyJ/view?usp=share_link)
 
   Discussant: [Antonia Juelich](https://www.belfercenter.org/person/antonia-juelich) (Harvard University) 
   
-- Amanda Rizkallah (Pepperdine University) [“Civil War Participation, Victimization, and the Development of Post-Conflict Partisan Identity: Evidence from Lebanon”]()
+- Amanda Rizkallah (Pepperdine University) [“Civil War Participation, Victimization, and the Development of Post-Conflict Partisan Identity: Evidence from Lebanon”](https://drive.google.com/file/d/1H5mj1fMvswyS3ias8tKqUKxkeYGxdR0h/view?usp=share_link)
 
   Discussant: [Kristen Fabbe](https://www.eui.eu/people?id=kristin-fabbe) (European University Institute)
 
