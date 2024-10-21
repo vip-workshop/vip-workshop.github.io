@@ -5,7 +5,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Fall 2024 Workshop Lineup
 
-### September 26, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://pitt.zoom.us/j/96883573644)
+### September 26, 2024 8am PST/11am EST/3pm GMT
 
 - Imrana Alhaji Buba (University of Oslo) [“From Survival to Subjugation: Civilian Cooperation with Boko Haram in Nigeria”](https://drive.google.com/file/d/1wxLo2lnFFenyxB1-qZTWVM_QNKmpGAyJ/view?usp=share_link)
 
@@ -15,11 +15,15 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [Kristen Fabbe](https://www.eui.eu/people?id=kristin-fabbe) (European University Institute)
 
-### October 24, 2024 8am PST/11am EST/3pm GMT
+### October 24, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://georgetown.zoom.us/meeting/register/tJUqcOGsrTksGtTdLwJSAblf_cEC2hHQ6t93)
 
-- Juan David Gelvez (University of Maryland), ["Does Crime Matter? The Politics of Crime Prevention in Colombia"]()
+- Juan David Gelvez (University of Maryland), ["The Politics of Crime Prevention: Evidence from Colombia"](https://drive.google.com/file/d/1mVeovQX9nqirw5fhFXow9C4gggUJm3rr/view?usp=share_link)
 
-- Natalia Pia Guerrero Trinidad (University of Minnesota), ["Non-State Social Structures and Social Capital: Evidence on Crime and Conflict"]()
+  Discussant: [Danny Hirschel-Burns](http://www.dannyhirschelburns.com) (Princeton University) 
+
+- Yu Mei (University of Rochester), ["The Interplay of Military Intervention and Peacemaking"](https://drive.google.com/file/d/1sXGGmHMmVoHKAYyzn7nFzfwA1KwUL-Bw/view?usp=share_link)
+
+  Discussant: []() ( University) 
   
 ### November 21, 2024 8am PST/11am EST/3pm GMT 
 
