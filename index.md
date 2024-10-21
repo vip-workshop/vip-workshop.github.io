@@ -27,9 +27,9 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
   
 ### November 21, 2024 8am PST/11am EST/3pm GMT 
 
-- Shirley Le Penne (Cornell University), ["Guillotining the Political"]()
+- TBA
   
-- Jia Li (Utah State University), ["I Leave in Peace: Autocratic Elections and Negotiated Regime Transitions"]()
+
 
 # Workshop Information
 
