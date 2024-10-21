@@ -23,7 +23,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 - Yu Mei (University of Rochester), ["The Interplay of Military Intervention and Peacemaking"](https://drive.google.com/file/d/1sXGGmHMmVoHKAYyzn7nFzfwA1KwUL-Bw/view?usp=share_link)
 
-  Discussant: []() ( University) 
+  Discussant: [Kyle Beardsley](https://scholars.duke.edu/person/kyle.beardsley) (Duke University) 
   
 ### November 21, 2024 8am PST/11am EST/3pm GMT 
 
