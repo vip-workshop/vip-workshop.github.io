@@ -15,7 +15,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [Kristen Fabbe](https://www.eui.eu/people?id=kristin-fabbe) (European University Institute)
 
-### October 24, 2024 8am PST/11am EST/3pm GMT [Register here for Zoom link](https://georgetown.zoom.us/meeting/register/tJUqcOGsrTksGtTdLwJSAblf_cEC2hHQ6t93)
+### October 24, 2024 8am PST/11am EST/3pm GMT
 
 - Juan David Gelvez (University of Maryland), ["The Politics of Crime Prevention: Evidence from Colombia"](https://drive.google.com/file/d/1mVeovQX9nqirw5fhFXow9C4gggUJm3rr/view?usp=share_link)
 
@@ -25,7 +25,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [Kyle Beardsley](https://scholars.duke.edu/person/kyle.beardsley) (Duke University)
   
-### November 21, 2024 8am PST/11am EST/3pm GMT [Register here!](https://georgetown.zoom.us/meeting/register/tJwvde6prT4uH9fWPJdSGoaYthgSgb0Vj8le)
+### November 21, 2024 8am PST/11am EST/3pm GMT [Register here for zoom link!](https://georgetown.zoom.us/meeting/register/tJwvde6prT4uH9fWPJdSGoaYthgSgb0Vj8le)
 
 - Natalia Pia Guerrero Trinidad (University of Minnesota), ["Non-State Social Structures and Social Capital: Evidence on Crime and Conflict"](https://drive.google.com/file/d/1G7bjn_sAyMXT5FpFg62TPvf5BPoJ6dex/view?usp=sharing)
 
