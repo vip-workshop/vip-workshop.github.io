@@ -25,13 +25,13 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [Kyle Beardsley](https://scholars.duke.edu/person/kyle.beardsley) (Duke University)
   
-### November 21, 2024 8am PST/11am EST/3pm GMT 
+### November 21, 2024 8am PST/11am EST/3pm GMT [Register here!](https://georgetown.zoom.us/meeting/register/tJwvde6prT4uH9fWPJdSGoaYthgSgb0Vj8le)
 
 - Natalia Pia Guerrero Trinidad (University of Minnesota), ["Non-State Social Structures and Social Capital: Evidence on Crime and Conflict"](https://drive.google.com/file/d/1G7bjn_sAyMXT5FpFg62TPvf5BPoJ6dex/view?usp=sharing)
 
   Discussant: Andres Uribe (University of Wisconsin-Madison)
   
-- Sally Shariff (Simon Fraser University and University of British Columbia) and Julio Zuluaga Jimenez (Pontifícia Universidad Javeriana), ["What Causes a Reduction in Post-Conflict Violence?"] (https://drive.google.com/file/d/1KzbtFD20ET9fNF3HgzJsfjB0kbuqkSx0/view?usp=sharing)
+- Sally Shariff (Simon Fraser University and University of British Columbia) and Julio Zuluaga Jimenez (Pontifícia Universidad Javeriana), ["What Causes a Reduction in Post-Conflict Violence?"](https://drive.google.com/file/d/1KzbtFD20ET9fNF3HgzJsfjB0kbuqkSx0/view?usp=sharing)
 
   Discussant: MP Broache (UNC Greensboro)
   
