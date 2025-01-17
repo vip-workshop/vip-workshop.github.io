@@ -7,31 +7,30 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### September 26, 2024 8am PST/11am EST/3pm GMT
 
-- Imrana Alhaji Buba (University of Oslo) [“From Survival to Subjugation: Civilian Cooperation with Boko Haram in Nigeria”](https://drive.google.com/file/d/1wxLo2lnFFenyxB1-qZTWVM_QNKmpGAyJ/view?usp=share_link)
-
+- Imrana Alhaji Buba (University of Oslo), “From Survival to Subjugation: Civilian Cooperation with Boko Haram in Nigeria”
   Discussant: [Antonia Juelich](https://www.belfercenter.org/person/antonia-juelich) (Harvard University) 
   
-- Amanda Rizkallah (Pepperdine University) [“Civil War Participation, Victimization, and the Development of Post-Conflict Partisan Identity: Evidence from Lebanon”](https://drive.google.com/file/d/1H5mj1fMvswyS3ias8tKqUKxkeYGxdR0h/view?usp=share_link)
+- Amanda Rizkallah (Pepperdine University), “Civil War Participation, Victimization, and the Development of Post-Conflict Partisan Identity: Evidence from Lebanon"
 
   Discussant: [Kristen Fabbe](https://www.eui.eu/people?id=kristin-fabbe) (European University Institute)
 
 ### October 24, 2024 8am PST/11am EST/3pm GMT
 
-- Juan David Gelvez (University of Maryland), ["The Politics of Crime Prevention: Evidence from Colombia"](https://drive.google.com/file/d/1mVeovQX9nqirw5fhFXow9C4gggUJm3rr/view?usp=share_link)
+- Juan David Gelvez (University of Maryland), "The Politics of Crime Prevention: Evidence from Colombia"
 
   Discussant: [Danny Hirschel-Burns](http://www.dannyhirschelburns.com) (Princeton University) 
 
-- Yu Mei (University of Rochester), ["The Interplay of Military Intervention and Peacemaking"](https://drive.google.com/file/d/1sXGGmHMmVoHKAYyzn7nFzfwA1KwUL-Bw/view?usp=share_link)
+- Yu Mei (University of Rochester), "The Interplay of Military Intervention and Peacemaking"
 
   Discussant: [Kyle Beardsley](https://scholars.duke.edu/person/kyle.beardsley) (Duke University)
   
-### November 21, 2024 8am PST/11am EST/3pm GMT [Register here for zoom link!](https://georgetown.zoom.us/meeting/register/tJwvde6prT4uH9fWPJdSGoaYthgSgb0Vj8le)
+### November 21, 2024 8am PST/11am EST/3pm GMT
 
-- Natalia Pia Guerrero Trinidad (University of Minnesota), ["Non-State Social Structures and Social Capital: Evidence on Crime and Conflict"](https://drive.google.com/file/d/1G7bjn_sAyMXT5FpFg62TPvf5BPoJ6dex/view?usp=sharing)
+- Natalia Pia Guerrero Trinidad (University of Minnesota), "Non-State Social Structures and Social Capital: Evidence on Crime and Conflict"
 
   Discussant: Andres Uribe (University of Wisconsin-Madison)
   
-- Sally Shariff (Simon Fraser University and University of British Columbia) and Julio Zuluaga Jimenez (Pontifícia Universidad Javeriana), ["What Causes a Reduction in Post-Conflict Violence?"](https://drive.google.com/file/d/1KzbtFD20ET9fNF3HgzJsfjB0kbuqkSx0/view?usp=sharing)
+- Sally Shariff (Simon Fraser University and University of British Columbia) and Julio Zuluaga Jimenez (Pontifícia Universidad Javeriana), "What Causes a Reduction in Post-Conflict Violence?"
 
   Discussant: MP Broache (UNC Greensboro)
   
