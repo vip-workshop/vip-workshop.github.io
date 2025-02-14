@@ -3,6 +3,65 @@
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
 
+## Spring 2025 Workshop Lineup
+
+### Feb 20th, 2025 8am PST/11am EST/3pm GMT
+
+- Betul Ozturan (Boston University), [“Mapping Political Violence in Turkey: When Terrorism and Civil War Converge”](https://drive.google.com/file/d/15uLpdbrnDQ7YIVPevAAPpSPosJEEfS3q/view?usp=sharing)
+  Discussant: [Killian Clarke](https://www.killianclarke.com/) (Georgetown University) 
+  
+- Tosin Salau (Michigan State University), [“Citizens’ Unrest: Understanding Civilian Cooperation with Militant Groups Amid Subsidy Reductions"](https://drive.google.com/file/d/1ASqQ0ugeazFrOjxUC-Dguyp4nO3pnTvl/view?usp=sharing)
+
+  Discussant: [MP Broache](https://igs.uncg.edu/faculty/michael-broache-ph-d/) (UNC Greensboro)
+
+### March 27th, 2025 8am PST/11am EST/3pm GMT
+
+- TBD 
+
+- TBD
+  
+### April 24, 2025 8am PST/11am EST/3pm GMT
+
+- Jamie Shenk (University of Warwick), "State for Hire: Corporate-State Security Contracts in Extractive Zones"
+
+  Discussant: Clara Voyvodic Casabo (University of Bradford)
+  
+- Daniel Rio Tinto (Fundação Getúlio Vargas), "When Public Goods Go Bad: Criminal Actors and Negative Security Externalities of Welfare Projects"
+
+  Discussant: Lucia Tiscornia (University College Dublin)
+  
+
+
+# Workshop Information
+
+Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our Google groups to receive emails with updates directly.
+
+We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
+
+We are open to work from scholars at all career stages, although we particularly aim to provide opportunities for junior scholars and early career researchers, including pre-tenure and non-tenure track faculty, post-docs, and graduate students. We are also committed to promoting opportunities for scholars from historically excluded communities.
+
+Do you want to **discuss** your peers' work? Volunteer as a discussant [here](https://forms.gle/BVLyRLWQuZ6XSkER7). 
+
+Scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) can serve as discussants, as long as they are willing to read research-in-progress and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
+
+## Format
+
+Our workshops are one-hour-long sessions dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
+
+## Current Organizers
+
+- [Ana Paula Pellegrino](https://anappellegrino.github.io/) (PhD Candidate, Georgetown University)
+- Betul Ozturan (PhD Candidate, Boston College)
+- [Frank Wyer](https://www.frankwyer.com) (Naval Postgraduate School)
+- MP Broache (Assistant Professor, UNC-Greensboro)
+- [Merve Keskin](https://mervekeskin20.github.io) (PhD Candidate, University of Pittsburgh)
+- [Taylor Vincent](https://tayloravincent.wordpress.com/) (PhD Candidate, University of Maryland)
+- Sloan Landsdale (University of Maryland)
+
+Alumni organizers: Isabel Laterzo, Amelie Godefroidt, Neeraj Prasad.
+
+# Past Workshops
+
 ## Fall 2024 Workshop Lineup
 
 ### September 26, 2024 8am PST/11am EST/3pm GMT
@@ -33,37 +92,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 - Sally Shariff (Simon Fraser University and University of British Columbia) and Julio Zuluaga Jimenez (Pontifícia Universidad Javeriana), "What Causes a Reduction in Post-Conflict Violence?"
 
   Discussant: MP Broache (UNC Greensboro)
-  
 
-
-# Workshop Information
-
-Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our Google groups to receive emails with updates directly.
-
-We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
-
-We are open to work from scholars at all career stages, although we particularly aim to provide opportunities for junior scholars and early career researchers, including pre-tenure and non-tenure track faculty, post-docs, and graduate students. We are also committed to promoting opportunities for scholars from historically excluded communities.
-
-Do you want to **discuss** your peers' work? Volunteer as a discussant [here](https://forms.gle/BVLyRLWQuZ6XSkER7). 
-
-Scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) can serve as discussants, as long as they are willing to read research-in-progress and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
-
-## Format
-
-Our workshops are one-hour-long sessions dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
-
-## Organizers
-
-- [Amélie Godefroidt](https://www.ameliegodefroidt.com/) (Post-doctoral Scholar, KU Leuven)
-- [Ankushi Mitra](https://gufaculty360.georgetown.edu/s/contact/00336000014SkQTAA0/ankushi-mitra?itid=ai_top_undefined) (PhD Candidate, Georgetown University)
-- [Ana Paula Pellegrino](https://anappellegrino.github.io/) (PhD Candidate, Georgetown University)
-- [Frank Wyer](https://www.frankwyer.com) (Naval Postgraduate School)
-- [Isabel Laterzo](https://isabellaterzo.com/) (PhD Candidate, UNC-Chapel Hill)
-- MP Broache (Assistant Professor, UNC-Greensboro)
-- [Merve Keskin](https://mervekeskin20.github.io) (PhD Candidate, University of Pittsburgh)
-- [Taylor Vincent](https://tayloravincent.wordpress.com/) (PhD Candidate, University of Maryland)
-
-# Past Workshops
 
 ## Spring 2024
 
