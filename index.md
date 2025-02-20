@@ -16,9 +16,13 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### March 27th, 2025 8am PST/11am EST/3pm GMT
 
-- TBD 
+- Sobia Paracha (Syracuse University) "Entrenched or Abandoned: Domestic Politics and Nationalism in Territorial Disputes"
 
-- TBD
+  Discussant: TBD
+
+- Leonor Oliveira Toscano (Oslo University) "Gendered Challenges of Local Peace Committees in Informal Settlements: Insights from Nairobi and Mombasa"
+
+  Discussant: TBD
   
 ### April 24, 2025 8am PST/11am EST/3pm GMT
 
