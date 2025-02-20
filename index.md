@@ -20,7 +20,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: TBD
 
-- Leonor Oliveira Toscano (Oslo University) "Gendered Challenges of Local Peace Committees in Informal Settlements: Insights from Nairobi and Mombasa"
+- Leonor Oliveira Toscano (University of Oslo) "Gendered Challenges of Local Peace Committees in Informal Settlements: Insights from Nairobi and Mombasa"
 
   Discussant: TBD
   
