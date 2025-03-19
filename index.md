@@ -16,13 +16,13 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### March 27th, 2025 8am PST/11am EST/3pm GMT
 
+- Leonor Oliveira Toscano (University of Oslo) "No One Size Fits All: The Limits of Kenya’s Local Peace Infrastructure in Urban Settlements"
+
+  Discussant: [Blair Welsh](https://www.blairwelsh.com) (New York University — Abu Dhabi)
+
 - Sobia Paracha (Syracuse University) "Entrenched or Abandoned: Domestic Politics and Nationalism in Territorial Disputes"
 
-  Discussant: TBD
-
-- Leonor Oliveira Toscano (University of Oslo) "Gendered Challenges of Local Peace Committees in Informal Settlements: Insights from Nairobi and Mombasa"
-
-  Discussant: TBD
+  Discussant: [Andi Zhou](https://sites.google.com/view/andi-zhou/home) (U.S. Naval Academy)
   
 ### April 24, 2025 8am PST/11am EST/3pm GMT
 
