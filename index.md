@@ -14,7 +14,8 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [MP Broache](https://igs.uncg.edu/faculty/michael-broache-ph-d/) (UNC Greensboro)
 
-### March 27th, 2025 8am PST/11am EST/3pm GMT
+### March 27th, 2025 8am PST/11am EST/3pm GMT (Click [here](https://umd.zoom.us/j/5769616090?omn=98004458758
+) for Zoom link
 
 - Leonor Oliveira Toscano (University of Oslo) "No One Size Fits All: The Limits of Kenya’s Local Peace Infrastructure in Urban Settlements"
 
