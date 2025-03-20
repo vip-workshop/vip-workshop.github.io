@@ -16,7 +16,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### March 27th, 2025 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=98004458758) for Zoom link
 
-- Leonor Oliveira Toscano (University of Oslo) "No One Size Fits All: The Limits of Kenya’s Local Peace Infrastructure in Urban Settlements"
+- Leonor Oliveira Toscano (University of Oslo) ["No One Size Fits All: The Limits of Kenya’s Local Peace Infrastructure in Urban Settlements"](https://drive.google.com/file/d/1dEkJoAQ_6w22AaNvogAvi2uxucDDsV3B/view?usp=share_link)
 
   Discussant: [Blair Welsh](https://www.blairwelsh.com) (New York University — Abu Dhabi)
 
