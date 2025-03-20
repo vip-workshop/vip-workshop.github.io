@@ -8,6 +8,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 ### Feb 20th, 2025 8am PST/11am EST/3pm GMT
 
 - Betul Ozturan (Boston University), [“Mapping Political Violence in Turkey: When Terrorism and Civil War Converge”](https://drive.google.com/file/d/15uLpdbrnDQ7YIVPevAAPpSPosJEEfS3q/view?usp=sharing)
+
   Discussant: [Killian Clarke](https://www.killianclarke.com/) (Georgetown University) 
   
 - Tosin Salau (Michigan State University), [“Citizens’ Unrest: Understanding Civilian Cooperation with Militant Groups Amid Subsidy Reductions"](https://drive.google.com/file/d/1ASqQ0ugeazFrOjxUC-Dguyp4nO3pnTvl/view?usp=sharing)
@@ -16,7 +17,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### March 27th, 2025 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=98004458758) for Zoom link
 
-- Leonor Oliveira Toscano (University of Oslo) ["No One Size Fits All: The Limits of Kenya’s Local Peace Infrastructure in Urban Settlements"](https://drive.google.com/file/d/1dEkJoAQ_6w22AaNvogAvi2uxucDDsV3B/view?usp=share_link)
+- Leonor Oliveira Toscano (University of Oslo), ["No One Size Fits All: The Limits of Kenya’s Local Peace Infrastructure in Urban Settlements"](https://drive.google.com/file/d/1dEkJoAQ_6w22AaNvogAvi2uxucDDsV3B/view?usp=share_link)
 
   Discussant: [Blair Welsh](https://www.blairwelsh.com) (New York University — Abu Dhabi)
 
