@@ -25,15 +25,15 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [Andi Zhou](https://sites.google.com/view/andi-zhou/home) (U.S. Naval Academy)
   
-### April 24, 2025 8am PST/11am EST/3pm GMT
+### April 24, 2025 8am PST/11am EST/3pm GMT, Click [here](https://georgetown.zoom.us/j/94920663115) for Zoom link
 
-- Jamie Shenk (University of Warwick), "State for Hire: Corporate-State Security Contracts in Extractive Zones"
+- Jamie Shenk (University of Warwick), ["State for Hire: Corporate-State Security Contracts in Extractive Zones"](https://drive.google.com/file/d/1GydhbVphnRtJVa6SHC5NDXI-EghpnuS7/view?usp=drive_link)
 
-  Discussant: Clara Voyvodic Casabo (University of Bradford)
+  Discussant: [Clara Voyvodic Casabo](https://www.bradford.ac.uk/staff/cvoyvodiccasabo/) (University of Bradford)
   
-- Daniel Rio Tinto (Fundação Getúlio Vargas), "When Public Goods Go Bad: Criminal Actors and Negative Security Externalities of Welfare Projects"
+- Daniel Rio Tinto (Fundação Getúlio Vargas), ["When Public Goods Go Bad: Criminal Actors and Negative Security Externalities of Welfare Projects"](https://drive.google.com/file/d/1gVaKbOfX8Zpidkesl-zTsQ9l2GDRhKNg/view?usp=drive_link)
 
-  Discussant: Lucia Tiscornia (University College Dublin)
+  Discussant: [Lucia Tiscornia](https://luciatiscornia.com/) (University College Dublin)
   
 
 
