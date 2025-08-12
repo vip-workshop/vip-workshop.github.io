@@ -2,40 +2,13 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
+## Fall 2025 Workshop Lineup
 
-## Spring 2025 Workshop Lineup
+### October 1 8am PST/11am EST/3pm GMT
 
-### Feb 20th, 2025 8am PST/11am EST/3pm GMT
+### November 5, 2024 8am PST/11am EST/3pm GMT
 
-- Betul Ozturan (Boston University), [“Mapping Political Violence in Turkey: When Terrorism and Civil War Converge”](https://drive.google.com/file/d/15uLpdbrnDQ7YIVPevAAPpSPosJEEfS3q/view?usp=sharing)
-
-  Discussant: [Killian Clarke](https://www.killianclarke.com/) (Georgetown University) 
-  
-- Tosin Salau (Michigan State University), [“Citizens’ Unrest: Understanding Civilian Cooperation with Militant Groups Amid Subsidy Reductions"](https://drive.google.com/file/d/1ASqQ0ugeazFrOjxUC-Dguyp4nO3pnTvl/view?usp=sharing)
-
-  Discussant: [MP Broache](https://igs.uncg.edu/faculty/michael-broache-ph-d/) (UNC Greensboro)
-
-### March 27th, 2025 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=98004458758) for Zoom link
-
-- Leonor Oliveira Toscano (University of Oslo), ["No One Size Fits All: The Limits of Kenya’s Local Peace Infrastructure in Urban Settlements"](https://drive.google.com/file/d/1dEkJoAQ_6w22AaNvogAvi2uxucDDsV3B/view?usp=share_link)
-
-  Discussant: [Blair Welsh](https://www.blairwelsh.com) (New York University — Abu Dhabi)
-
-- Sobia Paracha (Syracuse University) "Entrenched or Abandoned: Domestic Politics and Nationalism in Territorial Disputes"
-
-  Discussant: [Andi Zhou](https://sites.google.com/view/andi-zhou/home) (U.S. Naval Academy)
-  
-### April 24, 2025 8am PST/11am EST/3pm GMT, Click [here](https://georgetown.zoom.us/j/94920663115) for Zoom link
-
-- Jamie Shenk (University of Warwick), ["State for Hire: Corporate-State Security Contracts in Extractive Zones"](https://drive.google.com/file/d/1GydhbVphnRtJVa6SHC5NDXI-EghpnuS7/view?usp=drive_link)
-
-  Discussant: [Clara Voyvodic Casabo](https://www.bradford.ac.uk/staff/cvoyvodiccasabo/) (University of Bradford)
-  
-- Daniel Rio Tinto (Fundação Getúlio Vargas), ["When Public Goods Go Bad: Criminal Actors and Negative Security Externalities of Welfare Projects"](https://drive.google.com/file/d/1gVaKbOfX8Zpidkesl-zTsQ9l2GDRhKNg/view?usp=drive_link)
-
-  Discussant: [Lucia Tiscornia](https://luciatiscornia.com/) (University College Dublin)
-  
-
+### December 3, 2025 8am PST/11am EST/3pm GMT
 
 # Workshop Information
 
@@ -66,6 +39,38 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 Alumni organizers: Isabel Laterzo, Amelie Godefroidt, Neeraj Prasad.
 
 # Past Workshops
+
+## Spring 2025 Workshop Lineup
+
+### Feb 20th, 2025 8am PST/11am EST/3pm GMT
+
+- Betul Ozturan (Boston University), “Mapping Political Violence in Turkey: When Terrorism and Civil War Converge”
+
+  Discussant: [Killian Clarke](https://www.killianclarke.com/) (Georgetown University) 
+  
+- Tosin Salau (Michigan State University), “Citizens’ Unrest: Understanding Civilian Cooperation with Militant Groups Amid Subsidy Reductions"
+
+  Discussant: [MP Broache](https://igs.uncg.edu/faculty/michael-broache-ph-d/) (UNC Greensboro)
+
+### March 27th, 2025 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=98004458758) for Zoom link
+
+- Leonor Oliveira Toscano (University of Oslo), "No One Size Fits All: The Limits of Kenya’s Local Peace Infrastructure in Urban Settlements"
+
+  Discussant: [Blair Welsh](https://www.blairwelsh.com) (New York University — Abu Dhabi)
+
+- Sobia Paracha (Syracuse University) "Entrenched or Abandoned: Domestic Politics and Nationalism in Territorial Disputes"
+
+  Discussant: [Andi Zhou](https://sites.google.com/view/andi-zhou/home) (U.S. Naval Academy)
+  
+### April 24, 2025 8am PST/11am EST/3pm GMT, Click [here](https://georgetown.zoom.us/j/94920663115) for Zoom link
+
+- Jamie Shenk (University of Warwick), "State for Hire: Corporate-State Security Contracts in Extractive Zones"
+
+  Discussant: [Clara Voyvodic Casabo](https://www.bradford.ac.uk/staff/cvoyvodiccasabo/) (University of Bradford)
+  
+- Daniel Rio Tinto (Fundação Getúlio Vargas), "When Public Goods Go Bad: Criminal Actors and Negative Security Externalities of Welfare Projects"]
+
+  Discussant: [Lucia Tiscornia](https://luciatiscornia.com/) (University College Dublin)
 
 ## Fall 2024 Workshop Lineup
 
