@@ -12,7 +12,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 # Workshop Information
 
-If you are interested in presenting your work this semester, please **apply** here by August 29th, 11:59 pm EDT: [https://forms.gle/gN7yUQKBudiKhnqdA](url)
+If you are interested in presenting your work this semester, please apply [here](https://forms.gle/gN7yUQKBudiKhnqdA) by **August 29th**, 11:59 pm EDT.
 
 Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our Google groups to receive emails with updates directly.
 
