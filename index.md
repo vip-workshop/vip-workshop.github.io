@@ -6,7 +6,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### October 1, 8am PST/11am EST/3pm GMT, Click [here](https://asu.zoom.us/j/88283976606) for Zoom link
 
-- Juan Carlos Campos (UC Berkeley), “Police Reform as an Instrument of Criminal Protection””
+- Juan Carlos Campos (UC Berkeley), “[Police Reform as an Instrument of Criminal Protection](https://drive.google.com/file/d/1zR-54NUjvFxMUPuDgUP0c7FezAVuzTR-/view?usp=drive_link)”
 
   Discussant: [Juan David Gelvez](https://juangelvezf.github.io) (University of Maryland) 
   
