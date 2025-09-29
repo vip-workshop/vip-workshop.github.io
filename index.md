@@ -4,11 +4,15 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Fall 2025 Workshop Lineup
 
-### October 1, 8am PST/11am EST/3pm GMT
+### October 1, 8am PST/11am EST/3pm GMT, Click [here](https://asu.zoom.us/j/88283976606) for Zoom link
 
-### November 5, 2024 8am PST/11am EST/3pm GMT
+- Juan Carlos Campos (UC Berkeley), “Police Reform as an Instrument of Criminal Protection””
 
+  Discussant: [Juan David Gelvez](https://juangelvezf.github.io) (University of Maryland) 
+  
+### November 5, 2025 8am PST/11am EST/3pm GMT
 ### December 3, 2025 8am PST/11am EST/3pm GMT
+
 
 # Workshop Information
 
@@ -30,15 +34,14 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 
 ## Current Organizers
 
-- [Ana Paula Pellegrino](https://anappellegrino.github.io/) (PhD Candidate, Georgetown University)
-- Betul Ozturan (PhD Candidate, Boston College)
-- [Frank Wyer](https://www.frankwyer.com) (Naval Postgraduate School)
 - MP Broache (Assistant Professor, UNC-Greensboro)
-- [Merve Keskin](https://mervekeskin20.github.io) (PhD Candidate, University of Pittsburgh)
-- [Taylor Vincent](https://tayloravincent.wordpress.com/) (PhD Candidate, University of Maryland)
-- Sloan Landsdale (University of Maryland)
+- [Merve Keskin](https://mervekeskin20.github.io) (Postdoctoral Fellow, Arizona State University)
+- Sloan Landsdale (PhD Candidate, University of Maryland)
+- Betul Ozturan (PhD Candidate, Boston College)
+- [Taylor Vincent](https://tayloravincent.wordpress.com/) (Postdoctoral Fellow, Cornell University)
+- [Frank Wyer](https://www.frankwyer.com) (Fellow, University of San Diego)
 
-Alumni organizers: Isabel Laterzo, Amelie Godefroidt, Neeraj Prasad.
+Alumni organizers: Ana Paula Pellegrino, Isabel Laterzo, Amelie Godefroidt, Neeraj Prasad.
 
 # Past Workshops
 
