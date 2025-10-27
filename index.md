@@ -11,6 +11,14 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
   Discussant: [Juan David Gelvez](https://juangelvezf.github.io) (University of Maryland) 
   
 ### November 5, 2025 8am PST/11am EST/3pm GMT
+- Giovanny Alvarez (UNC Chapel Hill), "[A Dual-Arena: The Divergent Effects of Transitional Justice on Post-Conflict Violence in Intrastate Wars](https://drive.google.com/file/d/19inaRKcjO38nDc-yDkJ_8XDsiqnryi3Z/view?usp=sharing)"
+
+  Discussant: [Francesca Parente](https://www.francescaparente.com/) (Christopher Newport University)
+
+- Natalya Adam-Rahman (Stanford University), "[Gender-segregated voting and electoral irregularities](https://drive.google.com/file/d/1i1Ue3gPYCGtOyQaeMrhRgsKFqzcC9-da/view?usp=sharing)"
+
+  Discussant: [Sarah Khan](https://www.khansarah.com/) (American University)
+
 ### December 3, 2025 8am PST/11am EST/3pm GMT
 
 
