@@ -22,6 +22,13 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### December 3, 2025 8am PST/11am EST/3pm GMT
 
+- Jungmin Han (Trinity College, Dublin), "Patterns of Cooperation and Public Support for Rapprochement" (with Thomas Chadefaux)
+
+  Discussant: [Clara Suong](https://clarahsuong.com/) (Virginia Tech)
+
+- Zachariah Parcels (Purdue), "When Rebels Go to Church: Catholic Institutions and Civilian Victimization in Civil War"
+
+  Discussant: TBA
 
 # Workshop Information
 
@@ -58,7 +65,7 @@ Alumni organizers: Ana Paula Pellegrino, Isabel Laterzo, Amelie Godefroidt, Neer
 
 ### Feb 20th, 2025 8am PST/11am EST/3pm GMT
 
-- Betul Ozturan (Boston University), “Mapping Political Violence in Turkey: When Terrorism and Civil War Converge”
+- Betul Ozturan (Boston College), “Mapping Political Violence in Turkey: When Terrorism and Civil War Converge”
 
   Discussant: [Killian Clarke](https://www.killianclarke.com/) (Georgetown University) 
   
