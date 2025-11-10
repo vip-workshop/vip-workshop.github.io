@@ -32,9 +32,9 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 # Workshop Information
 
-If you are interested in presenting your work this semester, please apply [here](https://forms.gle/gN7yUQKBudiKhnqdA) by **August 29th**, 11:59 pm EDT.
+If you are interested in presenting your work in the spring semester of 2026, or participating in a VIP event at APSA, please apply [here](https://forms.gle/Xz8vrW77sdoKY1Zr8) by **December 5th**, 11:59 pm EST.
 
-Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our Google groups to receive emails with updates directly.
+Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our Google groups to receive emails with updates directly. Or follow us on [bluesky](https://bsky.app/profile/vipworkshop.bsky.social).
 
 We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
 
