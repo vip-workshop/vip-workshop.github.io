@@ -20,15 +20,13 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [Sarah Khan](https://www.khansarah.com/) (American University)
 
-### December 3, 2025 8am PST/11am EST/3pm GMT
+### December 3, 2025 8am PST/11am EST/3pm GMT Click [here](https://bccte.zoom.us/j/92302147616#success) for Zoom link
 
-- Jungmin Han (Trinity College, Dublin), "Patterns of Cooperation and Public Support for Rapprochement" (with Thomas Chadefaux)
+- Jungmin Han (Trinity College, Dublin), ["Patterns of Cooperation and Public Support for Rapprochement"](https://drive.google.com/file/d/1FablnzG1npYZLhVgr9ySBhoK059ohwNw/view?usp=sharing) (with Thomas Chadefaux)
 
   Discussant: [Clara Suong](https://clarahsuong.com/) (Virginia Tech)
 
-- Zachariah Parcels (Purdue), "When Rebels Go to Church: Catholic Institutions and Civilian Victimization in Civil War"
 
-  Discussant: TBA
 
 # Workshop Information
 
