@@ -26,6 +26,9 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [Clara Suong](https://clarahsuong.com/) (Virginia Tech)
 
+- Zachariah Parcels (Purdue), "When Rebels Go to Church: Catholic Institutions and Civilian Victimization in Civil War"
+
+  Discussant [M.P. Broache](https://www.uncg.edu/employees/michael-broache/) (UNC Greensboro)
 
 
 # Workshop Information
