@@ -20,7 +20,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [Sarah Khan](https://www.khansarah.com/) (American University)
 
-### December 3, 2025 8am PST/11am EST/3pm GMT Click [here](https://bccte.zoom.us/j/92302147616#success) for Zoom link
+### December 3, 2025 8am PST/11am EST/3pm GMT Click [here](https://sandiego.zoom.us/j/92514637085) for Zoom link
 
 - Jungmin Han (Trinity College, Dublin), ["Patterns of Cooperation and Public Support for Rapprochement"](https://drive.google.com/file/d/1FablnzG1npYZLhVgr9ySBhoK059ohwNw/view?usp=sharing) (with Thomas Chadefaux)
 
