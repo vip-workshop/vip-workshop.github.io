@@ -2,6 +2,40 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
+# Submissions
+
+If you are interested in presenting your work in the spring semester of 2026, or participating in a VIP event at APSA, please apply [here](https://forms.gle/Xz8vrW77sdoKY1Zr8) by **December 10th**, 11:59 pm EST.
+
+
+# Workshop Information
+
+Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our Google groups to receive emails with updates directly. Or follow us on [bluesky](https://bsky.app/profile/vipworkshop.bsky.social).
+
+We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
+
+We are open to work from scholars at all career stages, although we particularly aim to provide opportunities for junior scholars and early career researchers, including pre-tenure and non-tenure track faculty, post-docs, and graduate students. We are also committed to promoting opportunities for scholars from historically excluded communities.
+
+Do you want to **discuss** your peers' work? Volunteer as a discussant [here](https://forms.gle/BVLyRLWQuZ6XSkER7). 
+
+Scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) can serve as discussants, as long as they are willing to read research-in-progress and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
+
+## Format
+
+Our workshops are one-hour-long sessions dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
+
+## Current Organizers
+
+- MP Broache (Assistant Professor, UNC-Greensboro)
+- [Merve Keskin](https://mervekeskin20.github.io) (Postdoctoral Fellow, Arizona State University)
+- Sloan Landsdale (PhD Candidate, University of Maryland)
+- [Carly Millerd](https://carlymillerd.weebly.com/) (Assistant Professor, University of South Dakota) 
+- Betul Ozturan (PhD Candidate, Boston College)
+- [Frank Wyer](https://www.frankwyer.com) (Fellow, University of San Diego)
+
+Alumni organizers: Taylor Vincent, Ana Paula Pellegrino, Isabel Laterzo, Amelie Godefroidt, Neeraj Prasad.
+
+# Past Workshops
+
 ## Fall 2025 Workshop Lineup
 
 ### October 1, 8am PST/11am EST/3pm GMT, Click [here](https://asu.zoom.us/j/88283976606) for Zoom link
@@ -30,37 +64,6 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant [M.P. Broache](https://www.uncg.edu/employees/michael-broache/) (UNC Greensboro)
 
-
-# Workshop Information
-
-If you are interested in presenting your work in the spring semester of 2026, or participating in a VIP event at APSA, please apply [here](https://forms.gle/Xz8vrW77sdoKY1Zr8) by **December 5th**, 11:59 pm EST.
-
-Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our Google groups to receive emails with updates directly. Or follow us on [bluesky](https://bsky.app/profile/vipworkshop.bsky.social).
-
-We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
-
-We are open to work from scholars at all career stages, although we particularly aim to provide opportunities for junior scholars and early career researchers, including pre-tenure and non-tenure track faculty, post-docs, and graduate students. We are also committed to promoting opportunities for scholars from historically excluded communities.
-
-Do you want to **discuss** your peers' work? Volunteer as a discussant [here](https://forms.gle/BVLyRLWQuZ6XSkER7). 
-
-Scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) can serve as discussants, as long as they are willing to read research-in-progress and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
-
-## Format
-
-Our workshops are one-hour-long sessions dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
-
-## Current Organizers
-
-- MP Broache (Assistant Professor, UNC-Greensboro)
-- [Merve Keskin](https://mervekeskin20.github.io) (Postdoctoral Fellow, Arizona State University)
-- Sloan Landsdale (PhD Candidate, University of Maryland)
-- Betul Ozturan (PhD Candidate, Boston College)
-- [Taylor Vincent](https://tayloravincent.wordpress.com/) (Postdoctoral Fellow, Cornell University)
-- [Frank Wyer](https://www.frankwyer.com) (Fellow, University of San Diego)
-
-Alumni organizers: Ana Paula Pellegrino, Isabel Laterzo, Amelie Godefroidt, Neeraj Prasad.
-
-# Past Workshops
 
 ## Spring 2025 Workshop Lineup
 
