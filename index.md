@@ -29,7 +29,7 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 - [Merve Keskin](https://mervekeskin20.github.io) (Postdoctoral Fellow, Arizona State University)
 - Sloan Landsdale (PhD Candidate, University of Maryland)
 - [Carly Millerd](https://carlymillerd.weebly.com/) (Assistant Professor, University of South Dakota) 
-- Betul Ozturan (PhD Candidate, Boston College)
+- [Betul Ozturan](https://betulozturan.github.io/) (PhD Candidate, Boston College)
 - [Frank Wyer](https://www.frankwyer.com) (Fellow, University of San Diego)
 
 Alumni organizers: Taylor Vincent, Ana Paula Pellegrino, Isabel Laterzo, Amelie Godefroidt, Neeraj Prasad.
