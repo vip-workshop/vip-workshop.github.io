@@ -2,23 +2,7 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
-# Workshop Information
-
-Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our Google groups to receive emails with updates directly. Or follow us on [bluesky](https://bsky.app/profile/vipworkshop.bsky.social).
-
-We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
-
-We are open to work from scholars at all career stages, although we particularly aim to provide opportunities for junior scholars and early career researchers, including pre-tenure and non-tenure track faculty, post-docs, and graduate students. We are also committed to promoting opportunities for scholars from historically excluded communities.
-
-If you are interested in presenting your work at the VIP workshop series in the fall semester of 2026, submissions will be accepted beginning in late summer.
-
-Do you want to **discuss** your peers' work? Volunteer as a discussant [here](https://forms.gle/BVLyRLWQuZ6XSkER7). 
-
-Scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) can serve as discussants, as long as they are willing to read research-in-progress and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
-
-# Upcoming Workshops
-
-## Spring 2026 Workshop Lineup
+# Spring 2026 Workshop Lineup
 
 ### February 4th, 8am PST/11am EST/3pm GMT
 - Adee Weller (Emory), "Echoes of Intervention: Conflict in the Interim of the Multinational Security Support Mission in Haiti" _(with Camila Cortreras, Mathias Lusquiños and Martin Castillo-Quintana)_
@@ -32,6 +16,20 @@ Scholars at varying stages of their careers (from advanced PhD candidates to ten
 - Leo Bauer (UMD), "Rebel-Civilian Social Ties and Civilian Targeting in Conflict"
 - Maya Dalton (Penn State), "Memory Matters: Thinking About Conflict and Time Series Analysis" _(with Cecilia Cavero-Sanchez)_
 
+
+# Workshop Information
+
+Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our Google groups to receive emails with updates directly. Or follow us on [bluesky](https://bsky.app/profile/vipworkshop.bsky.social).
+
+We consider submissions of full papers (e.g., to be submitted for publication in a peer-reviewed journal, a chapter in an edited volume, or a job market paper) and well-developed research designs or pre-analysis plans. If accepted, you will provide a short presentation (about 5 minutes) and receive about 25 minutes of feedback from a discussant and attendants.
+
+We are open to work from scholars at all career stages, although we particularly aim to provide opportunities for junior scholars and early career researchers, including pre-tenure and non-tenure track faculty, post-docs, and graduate students. We are also committed to promoting opportunities for scholars from historically excluded communities.
+
+If you are interested in presenting your work at the VIP workshop series in the fall semester of 2026, submissions will be accepted beginning in late summer.
+
+Do you want to **discuss** your peers' work? Volunteer as a discussant [here](https://forms.gle/BVLyRLWQuZ6XSkER7). 
+
+Scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) can serve as discussants, as long as they are willing to read research-in-progress and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
 
 ## Format
 
