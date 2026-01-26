@@ -5,11 +5,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 # Spring 2026 Workshop Lineup
 
 ### February 4th, 8am PST/11am EST/3pm GMT
-- Adee Weller (Emory), "Echoes of Intervention: Conflict in the Interim of the Multinational Security Support Mission in Haiti" _(with Camila Cortreras, Mathias Lusquiños and Martin Castillo-Quintana)_
+- Adee Weller (Emory), "[Echoes of Intervention: Conflict in the Interim of the Multinational Security Support Mission in Haiti](https://drive.google.com/file/d/1s49YkVM5kMKhenFSMCFM71v13kRNb3Fc/view?usp=sharing)" _(with Camila Cortreras, Mathias Lusquiños and Martin Castillo-Quintana)_
   
     Discussant: [Jessica Di Salvatore](https://jdisalvatore.weebly.com/) (University of Florence)
 
-- Juan C. Campos (Berkeley), "The Logic of Political Entry in Violent Elections" _(with Navin Bapat)_
+- Juan C. Campos (Berkeley), "[The Logic of Political Entry in Violent Elections](https://drive.google.com/file/d/1QkgNG7M1ZxPEsbCXst-fYZHUnKEv_Vxj/view?usp=sharing)" _(with Navin Bapat)_
   
     Discussant: Camilo Nieto-Matiz (UT San Antonio)
 
