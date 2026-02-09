@@ -15,7 +15,12 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### March 4th, 8am PST/11am EST/3pm GMT
 - Johanna Reyes Ortega (Berkeley), "Between Elite Strategy and Mass Mobilization: Women’s Political Empowerment in Anti-Colonial Social Revolutions"
+
+  Discussant: [Susan Franceschet](https://profiles.ucalgary.ca/susan-franceschet) (University of Calgary)
+    
 - Saloni Bhogale (UW Madison), "Politicians Help Citizens Access Justice: Evidence from India"
+
+  Discussant: [Franziska Roscher](https://franziskaroscher.com/index.html) (Georgia Tech)
 
 ### April 8th, 8am PST/11am EST/3pm GMT 
 - Leo Bauer (UMD), "Rebel-Civilian Social Ties and Civilian Targeting in Conflict"
