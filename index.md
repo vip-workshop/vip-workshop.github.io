@@ -13,7 +13,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
   
     Discussant: Camilo Nieto-Matiz (UT San Antonio)
 
-### March 4th, 8am PST/11am EST/3pm GMT
+### March 4th, 8am PST/11am EST/3pm GMT ([Zoom Link](https://usd.zoom.us/j/96746212181))
 - Johanna Reyes Ortega (Berkeley), "[Between Elite Strategy and Mass Mobilization: Women’s Political Empowerment in Anti-Colonial Social Revolutions](https://drive.google.com/file/d/1wakqOEpKvjwOt75X5WmVLiUzzuZm3QOG/view?usp=sharing)"
 
   Discussant: [Susan Franceschet](https://profiles.ucalgary.ca/susan-franceschet) (University of Calgary)
