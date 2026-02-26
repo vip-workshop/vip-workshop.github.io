@@ -18,7 +18,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [Susan Franceschet](https://profiles.ucalgary.ca/susan-franceschet) (University of Calgary)
     
-- Saloni Bhogale (UW Madison), "Politicians Help Citizens Access Justice: Evidence from India"
+- Saloni Bhogale (UW Madison), "[Politicians Help Citizens Access Justice: Evidence from India](https://drive.google.com/file/d/18Ajohgai9McA1dtidkm2i41Ph2K5uBME/view?usp=sharing)"
 
   Discussant: [Franziska Roscher](https://franziskaroscher.com/index.html) (Georgia Tech)
 
