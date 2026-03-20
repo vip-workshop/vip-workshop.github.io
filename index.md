@@ -23,9 +23,6 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
   Discussant: [Franziska Roscher](https://franziskaroscher.com/index.html) (Georgia Tech)
 
 ### April 8th, 8am PST/11am EST/3pm GMT 
-- Leo Bauer (UMD), "Rebel-Civilian Social Ties and Civilian Targeting in Conflict"
-
-  Discussant: [Stephen Ranganzas](https://www.stephenrangazas.com/) (Dartmouth)
 
 - Maya Dalton (Penn State), "Memory Matters: Thinking About Conflict and Time Series Analysis" _(with Cecilia Cavero-Sanchez)_
 
