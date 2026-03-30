@@ -24,7 +24,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### April 8th, 8am PST/11am EST/3pm GMT 
 
-- Maya Dalton (Penn State), "Memory Matters: Thinking About Conflict and Time Series Analysis" _(with Cecilia Cavero-Sanchez)_
+- Maya Dalton (Penn State), ["Memory Matters: Thinking About Conflict and Time Series Analysis"](https://drive.google.com/file/d/1cIuGp97WxKqOlYRvydCtlQrEzjk-TM3C/view?usp=sharing) [[Appendix](https://drive.google.com/file/d/1NF97yfP0qfl5Qa6WIw_q1KgyuOjJAoOc/view?usp=sharing)] _(with Cecilia Cavero-Sanchez)_
 
   Discussant: [Sara Mitchell](https://www.saramitchell.org/) (University of Iowa) 
 
