@@ -22,7 +22,8 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [Franziska Roscher](https://franziskaroscher.com/index.html) (Georgia Tech)
 
-### April 8th, 8am PST/11am EST/3pm GMT 
+### April 8th, 8am PST/11am EST/3pm GMT ([Zoom Link](https://umd.zoom.us/j/5769616090?omn=97841358987
+))
 
 - Maya Dalton (Penn State), ["Memory Matters: Thinking About Conflict and Time Series Analysis"](https://drive.google.com/file/d/1cIuGp97WxKqOlYRvydCtlQrEzjk-TM3C/view?usp=sharing) [[Appendix](https://drive.google.com/file/d/1NF97yfP0qfl5Qa6WIw_q1KgyuOjJAoOc/view?usp=sharing)] _(with Cecilia Cavero-Sanchez)_
 
