@@ -2,6 +2,53 @@
 
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
+# Fall 2026 Workshop Lineup
+
+### October 7th, 2026 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97267119955) for Zoom link
+
+- Nicola Williams (Georgetown University): "Tracing How Civil Wars End: The Intrastate Conflict Termination and Outcomes Dataset (1946–2023)”
+
+  Discussant: [Minnie Minhyung Joo](https://minniejoo.com/) (University of Massachusetts Lowell)
+
+- Kasidech Somboonkittichai (Jimmy) (University College Dublin): "Spreading Inclusivity: Network Channels and Inclusive Peace Negotiations in Civil Wars”
+
+  Discussant: TBA
+  
+### November 4th, 2026 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97517668498) for Zoom link
+
+- Thomas Dainty (University of Iowa): "Rebel Foreign Aid Targeting Amid Natural Disaster Recovery"
+
+  Discussant: TBA
+
+- Annjulie Vester (UC Santa Barbara), "Rebel Money: Monetary Governance During and After Armed Conflict"
+
+  Discussant: TBA
+
+### December 2nd, 2026 8am PST/11am EST/3pm GMT Click [here](https://sandiego.zoom.us/j/92514637085) for Zoom link
+
+- Ana Isabel Lopez Garcia (Maastricht University), "Contested Public Good Provision Evidence from a survey experiment in Mexico"
+
+  Discussant: TBA
+
+- Leo Bauer (Bilkent University), "Rebel-Civilian Social Ties and Their Effects on Violence Against Civilians in Civil War"
+
+  Discussant: TBA
+
+## Format
+
+Our workshops are one-hour-long sessions dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
+
+## Current Organizers
+
+- [Sloan Landsdale](https://sites.google.com/umd.edu/sloanlansdale/about) (PhD Candidate, University of Maryland)
+- [Carly Millerd](https://carlymillerd.weebly.com/) (Assistant Professor, University of South Dakota)
+- [Liv Bauer](https://olivia-bauer.com/) (PhD Student, University of Maryland)
+- [Thomas Dainty](https://thomascdainty.com/) (PhD Candidate, University of Iowa)
+- [Abbie Eastman](https://sites.google.com/view/abbieleastman/about) (PhD Student, Washington University in St. Louis)
+- [Zachariah Parcels](https://zparcels.github.io/) (PhD Candidate, Purdue University, Predoctoral Fellow, SNF Agora Institute, Johns Hopkins University)
+
+Alumni organizers: Betul Ozturan, Merve Keskin, MP Broache, Frank Wyer, Taylor Vincent, Ana Paula Pellegrino, Isabel Laterzo, Amelie Godefroidt, Neeraj Prasad.
+
 # Workshop Information
 
 Sign up [here](https://groups.google.com/g/vip-workshop/?pli=1) to join our Google groups to receive emails with updates directly. Or follow us on [bluesky](https://bsky.app/profile/vipworkshop.bsky.social).
@@ -16,21 +63,9 @@ Do you want to **discuss** your peers' work? Volunteer as a discussant [here](ht
 
 Scholars at varying stages of their careers (from advanced PhD candidates to tenured scholars) can serve as discussants, as long as they are willing to read research-in-progress and provide about 10 minutes of feedback. We will do our best to match you with a paper that fits your area of expertise.
 
-## Format
-
-Our workshops are one-hour-long sessions dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
-
-## Current Organizers
-
-- [Sloan Landsdale](https://sites.google.com/umd.edu/sloanlansdale/about) (PhD Candidate, University of Maryland)
-- [Carly Millerd](https://carlymillerd.weebly.com/) (Assistant Professor, University of South Dakota) 
-
-Alumni organizers: Betul Ozturan, Merve Keskin, MP Broache, Frank Wyer, Taylor Vincent, Ana Paula Pellegrino, Isabel Laterzo, Amelie Godefroidt, Neeraj Prasad.
-
-
 # Past Workshops
 
-# Spring 2026 Workshop Lineup
+## Spring 2026 Workshop Lineup
 
 ### February 4th, 8am PST/11am EST/3pm GMT
 - Adee Weller (Emory), "[Echoes of Intervention: Conflict in the Interim of the Multinational Security Support Mission in Haiti](https://drive.google.com/file/d/1s49YkVM5kMKhenFSMCFM71v13kRNb3Fc/view?usp=sharing)" _(with Camila Cortreras, Mathias Lusquiños and Martin Castillo-Quintana)_
