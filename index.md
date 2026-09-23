@@ -40,7 +40,7 @@ Our workshops are one-hour-long sessions dedicated to providing feedback on two 
 
 ## Current Organizers
 
-- [Sloan Landsdale](https://sites.google.com/view/msloanlansdale/about) (PhD Candidate, University of Maryland)
+- [Sloan Landsdale](https://sloanlansdale.com) (PhD Candidate, University of Maryland)
 - [Carly Millerd](https://carlymillerd.weebly.com/) (Assistant Professor, University of South Dakota)
 - [Liv Bauer](https://olivia-bauer.com/) (PhD Student, University of Maryland)
 - [Thomas Dainty](https://thomascdainty.com/) (PhD Candidate, University of Iowa)
