@@ -6,13 +6,13 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### October 7th, 2026 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97267119955) for Zoom link
 
-- Nicola Williams (Georgetown University): "Tracing How Civil Wars End: The Intrastate Conflict Termination and Outcomes Dataset (1946–2023)”
+- Nicola Williams (Georgetown University): "[Tracing How Civil Wars End: The Intrastate Conflict Termination and Outcomes Dataset (1946–2023)](https://docs.google.com/document/d/1lwheHw7fd2ySjsAXuxjIHuIOeFcVDfDD/edit?usp=sharing&ouid=102624294991725827357&rtpof=true&sd=true)”
 
   Discussant: [Minnie Minhyung Joo](https://minniejoo.com/) (University of Massachusetts Lowell)
 
-- Kasidech Somboonkittichai (Jimmy) (University College Dublin): "Spreading Inclusivity: Network Channels and Inclusive Peace Negotiations in Civil Wars”
+- Kasidech Somboonkittichai (Jimmy) (University College Dublin): "[Spreading Inclusivity: Network Channels and Inclusive Peace Negotiations in Civil Wars](https://drive.google.com/file/d/1S_cguW1IHkmyypwc2MVX0xvz9cvd7S0G/view?usp=sharing)”
 
-  Discussant: TBA
+  Discussant: [Sloan Lansdale](https://www.sloanlansdale.com/) (University of Maryland, College Park)
   
 ### November 4th, 2026 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97517668498) for Zoom link
 
