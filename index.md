@@ -3,26 +3,16 @@
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
 # Fall 2026 Workshop Lineup
-
-### October 7th, 2026 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97267119955) for Zoom link
-
-- Nicola Williams (Georgetown University): "[Tracing How Civil Wars End: The Intrastate Conflict Termination and Outcomes Dataset (1946–2023)](https://docs.google.com/document/d/1lwheHw7fd2ySjsAXuxjIHuIOeFcVDfDD/edit?usp=sharing&ouid=102624294991725827357&rtpof=true&sd=true)”
-
-  Discussant: [Minnie Minhyung Joo](https://minniejoo.com/) (University of Massachusetts Lowell)
-
-- Kasidech Somboonkittichai (Jimmy) (University College Dublin): "[Spreading Inclusivity: Network Channels and Inclusive Peace Negotiations in Civil Wars](https://drive.google.com/file/d/1S_cguW1IHkmyypwc2MVX0xvz9cvd7S0G/view?usp=sharing)”
-
-  Discussant: [Sloan Lansdale](https://www.sloanlansdale.com/) (University of Maryland, College Park)
   
 ### November 4th, 2026 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97517668498) for Zoom link
 
 - Thomas Dainty (University of Iowa): "Rebel Foreign Aid Targeting Amid Natural Disaster Recovery"
 
-  Discussant: TBA
+  Discussant: [Elisabeth L Rosvold](https://www.ntnu.edu/employees/elisabeth.l.rosvold) (Norwegian University of Science and Technology)
 
 - Annjulie Vester (UC Santa Barbara), "Rebel Money: Monetary Governance During and After Armed Conflict"
 
-  Discussant: TBA
+  Discussant: [Rachel Sweet](https://sites.google.com/site/rachelssweet/home) (University of Notre Dame)
 
 ### December 2nd, 2026 8am PST/11am EST/3pm GMT Click [here](https://sandiego.zoom.us/j/92514637085) for Zoom link
 
@@ -33,7 +23,16 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 - Leo Bauer (Bilkent University), "Rebel-Civilian Social Ties and Their Effects on Violence Against Civilians in Civil War"
 
   Discussant: TBA
+  
+### October 7th, 2026 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97267119955) for Zoom link
 
+- Nicola Williams (Georgetown University): "[Tracing How Civil Wars End: The Intrastate Conflict Termination and Outcomes Dataset (1946–2023)](https://docs.google.com/document/d/1lwheHw7fd2ySjsAXuxjIHuIOeFcVDfDD/edit?usp=sharing&ouid=102624294991725827357&rtpof=true&sd=true)”
+
+  Discussant: [Minnie Minhyung Joo](https://minniejoo.com/) (University of Massachusetts Lowell)
+
+- Kasidech Somboonkittichai (Jimmy) (University College Dublin): "[Spreading Inclusivity: Network Channels and Inclusive Peace Negotiations in Civil Wars](https://drive.google.com/file/d/1S_cguW1IHkmyypwc2MVX0xvz9cvd7S0G/view?usp=sharing)”
+
+  Discussant: [Sloan Lansdale](https://www.sloanlansdale.com/) (University of Maryland, College Park)
 ## Format
 
 Our workshops are one-hour-long sessions dedicated to providing feedback on two featured papers; accordingly, authors will only provide a short 5-minute presentation to provide an overview of the paper. Each paper will then receive 25 minutes of dedicated feedback from both a chosen discussant and other participants. Manuscripts will be circulated at least one week in advance, and all participants are expected to read them.
