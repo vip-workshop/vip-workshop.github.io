@@ -6,11 +6,11 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
   
 ### November 4th, 2026 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97517668498) for Zoom link
 
-- Thomas Dainty (University of Iowa): "Rebel Foreign Aid Targeting Amid Natural Disaster Recovery"
+-  [Thomas Dainty](https://thomascdainty.com/) (University of Iowa): ["Rebel Foreign Aid Targeting Amid Natural Disaster Recovery"](https://docs.google.com/document/d/1lHEpbAjxrOsjvVyDraaJ7Nf8087m1prb/edit?usp=drive_link&ouid=102624294991725827357&rtpof=true&sd=true)
 
   Discussant: [Elisabeth L Rosvold](https://www.ntnu.edu/employees/elisabeth.l.rosvold) (Norwegian University of Science and Technology)
 
-- Annjulie Vester (UC Santa Barbara), "Rebel Money: Monetary Governance During and After Armed Conflict"
+- [Annjulie Vester](https://sites.google.com/view/annjulievester) (UC Santa Barbara), "Rebel Money: Monetary Governance During and After Armed Conflict"
 
   Discussant: [Rachel Sweet](https://sites.google.com/site/rachelssweet/home) (University of Notre Dame)
 
