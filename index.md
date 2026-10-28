@@ -10,7 +10,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
   Discussant: [Elisabeth L Rosvold](https://www.ntnu.edu/employees/elisabeth.l.rosvold) (Norwegian University of Science and Technology)
 
-- [Annjulie Vester](https://sites.google.com/view/annjulievester) (UC Santa Barbara), "Rebel Money: Monetary Governance During and After Armed Conflict"
+- [Annjulie Vester](https://sites.google.com/view/annjulievester) (UC Santa Barbara), ["Rebel Money: Monetary Governance During and After Armed Conflict"](https://drive.google.com/file/d/1_jh6r_nKpigzLXb3EYEtii2SOGL22kt_/view?usp=drive_link)
 
   Discussant: [Rachel Sweet](https://sites.google.com/site/rachelssweet/home) (University of Notre Dame)
 
