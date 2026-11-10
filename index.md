@@ -3,6 +3,16 @@
 The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for scholars studying conflict, protest, crime, peace, and related topics to receive feedback on research-in-progress, including working papers and well-developed pre-analysis plans. The workshop is open to scholars from political science and related disciplines (e.g., sociology, economics, psychology, communication), and from across subfields. 
 
 # Fall 2026 Workshop Lineup
+
+### December 2nd, 2026 8am PST/11am EST/4pm GMT Click [here](https://sandiego.zoom.us/j/92514637085) for Zoom link
+
+- [Ana Isabel Lopez Garcia](https://www.maastrichtuniversity.nl/ai-lopez-garcia) (Maastricht University), "Contested Public Good Provision Evidence from a survey experiment in Mexico"
+
+  Discussant: [Isabel Laterzo-Tingley](https://lbj.utexas.edu/isabel-laterzo-tingley)
+
+- [Leo Bauer](https://leo-bauer.com/) (Bilkent University), "Rebel-Civilian Social Ties and Their Effects on Violence Against Civilians in Civil War"
+
+  Discussant: TBA
   
 ### November 4th, 2026 8am PST/11am EST/4pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97517668498) for Zoom link
 
@@ -13,17 +23,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 - [Annjulie Vester](https://sites.google.com/view/annjulievester) (UC Santa Barbara), ["Rebel Money: Monetary Governance During and After Armed Conflict"](https://drive.google.com/file/d/1_jh6r_nKpigzLXb3EYEtii2SOGL22kt_/view?usp=drive_link)
 
   Discussant: [Rachel Sweet](https://sites.google.com/site/rachelssweet/home) (University of Notre Dame)
-
-### December 2nd, 2026 8am PST/11am EST/3pm GMT Click [here](https://sandiego.zoom.us/j/92514637085) for Zoom link
-
-- Ana Isabel Lopez Garcia (Maastricht University), "Contested Public Good Provision Evidence from a survey experiment in Mexico"
-
-  Discussant: TBA
-
-- Leo Bauer (Bilkent University), "Rebel-Civilian Social Ties and Their Effects on Violence Against Civilians in Civil War"
-
-  Discussant: TBA
-  
+ 
 ### October 7th, 2026 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97267119955) for Zoom link
 
 - Nicola Williams (Georgetown University): "[Tracing How Civil Wars End: The Intrastate Conflict Termination and Outcomes Dataset (1946–2023)](https://docs.google.com/document/d/1lwheHw7fd2ySjsAXuxjIHuIOeFcVDfDD/edit?usp=sharing&ouid=102624294991725827357&rtpof=true&sd=true)”
