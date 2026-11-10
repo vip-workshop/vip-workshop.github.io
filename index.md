@@ -4,7 +4,7 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 # Fall 2026 Workshop Lineup
   
-### November 4th, 2026 8am PST/11am EST/3pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97517668498) for Zoom link
+### November 4th, 2026 8am PST/11am EST/4pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97517668498) for Zoom link
 
 -  [Thomas Dainty](https://thomascdainty.com/) (University of Iowa): ["Rebel Foreign Aid Targeting Amid Natural Disaster Recovery"](https://docs.google.com/document/d/1lHEpbAjxrOsjvVyDraaJ7Nf8087m1prb/edit?usp=drive_link&ouid=102624294991725827357&rtpof=true&sd=true)
 
