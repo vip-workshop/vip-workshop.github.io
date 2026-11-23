@@ -6,13 +6,13 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ### December 2nd, 2026 8am PST/11am EST/4pm GMT Click [here](https://sandiego.zoom.us/j/92514637085) for Zoom link
 
-- [Ana Isabel Lopez Garcia](https://www.maastrichtuniversity.nl/ai-lopez-garcia) (Maastricht University), "Contested Public Good Provision Evidence from a survey experiment in Mexico"
+- [Ana Isabel Lopez Garcia](https://www.maastrichtuniversity.nl/ai-lopez-garcia) (Maastricht University), ["Contested Public Good Provision Evidence from a survey experiment in Mexico"](https://drive.google.com/file/d/1NAWx6S0Taxe2DNctqa9Z3MZXhv249eFq/view?usp=sharing)
 
   Discussant: [Isabel Laterzo-Tingley](https://lbj.utexas.edu/isabel-laterzo-tingley)
 
 - [Leo Bauer](https://leo-bauer.com/) (Bilkent University), "Rebel-Civilian Social Ties and Their Effects on Violence Against Civilians in Civil War"
 
-  Discussant: TBA
+  Discussant: [Mark Berlin](https://www.markberlin2.com/)
   
 ### November 4th, 2026 8am PST/11am EST/4pm GMT, Click [here](https://umd.zoom.us/j/5769616090?omn=97517668498) for Zoom link
 
